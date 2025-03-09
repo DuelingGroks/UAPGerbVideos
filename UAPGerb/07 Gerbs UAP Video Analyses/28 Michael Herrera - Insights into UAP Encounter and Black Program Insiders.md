@@ -95,3 +95,4 @@ Topics covered:
 - **NICAP UAP Crash Database:** [NICAP](http://www.nicap.org/NSID/NSID_DBListingbyDate.pdf)
 
 ---
+## Transcript
