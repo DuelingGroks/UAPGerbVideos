@@ -47,7 +47,7 @@ The [[1953 Kingman, Arizona UFO Crash]] is one of the most debated cases in UFO 
 ### 🔗 Cross-References
 
 - [[1947 Roswell Crash]] – Similarities in government response.
-- [[UFO_Crashes_and_Retrievals]] – Broader discussion on recovered UAP technology.
+- [[UFO Crashes and Retrievals]] – Broader discussion on recovered UAP technology.
 - [[Reverse_Engineering_Programs]] – The role of private aerospace contractors in UFO research.
 
 ### 🏷 Tags

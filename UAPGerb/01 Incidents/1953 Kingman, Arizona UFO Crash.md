@@ -34,7 +34,7 @@ The **1953 Kingman, Arizona UFO Crash** is one of the most widely discussed cras
 ### 🔗 Related Cases
 
 - [[1947 Roswell Crash]] – Parallels in secrecy and military response.
-- [[UFO_Crashes_and_Retrievals]] – Compilation of UFO crash cases.
+- [[UFO Crashes and Retrievals]] – Compilation of UFO crash cases.
 - [[Reverse_Engineering_Programs]] – Alleged study of retrieved non-human craft.
 
 ### 🏷 Tags

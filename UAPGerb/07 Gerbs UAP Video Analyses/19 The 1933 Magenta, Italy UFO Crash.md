@@ -53,7 +53,7 @@ Topics covered:
 ## 🔗 Cross-References
 
 - [[Wilson Davis Memo]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Vatican_UFO_Connections]]
 
 ---

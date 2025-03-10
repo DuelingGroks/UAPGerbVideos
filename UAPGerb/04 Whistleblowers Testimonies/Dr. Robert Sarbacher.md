@@ -43,7 +43,7 @@ Sarbacher's statements suggest:
 ## 🔗 Related Documents & References
 
 - [[MJ-12_Documents]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Wilbert_B_Smith_Memo]]
 
 ---

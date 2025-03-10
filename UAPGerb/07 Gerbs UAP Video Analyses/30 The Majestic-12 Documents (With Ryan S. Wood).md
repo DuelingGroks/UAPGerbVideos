@@ -58,7 +58,7 @@ Topics covered:
 ## 🔗 Cross-References
 
 - [[UFOs_and_Government_Secrecy]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Reverse_Engineering_and_Private_Sector]]
 - [[Wilson_Davis_Memo]]
 

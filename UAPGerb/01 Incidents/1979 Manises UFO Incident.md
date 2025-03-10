@@ -38,7 +38,7 @@ The **1979 Manises UFO Incident** is one of Spain’s most **well-documented UFO
 
 - [[Military_Encounters]]
 - [[02 Government Secrecy Index]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[1976_Tehran_UFO_Incident]]
 - [[Manises_UFO_Incident_Analysis]]
 

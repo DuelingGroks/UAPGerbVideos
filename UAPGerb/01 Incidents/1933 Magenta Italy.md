@@ -81,7 +81,7 @@ The **1933 Magenta UFO Incident** is one of the earliest alleged UFO crash retri
     
 - [[Wilson Davis Memo]] – Potential links to secret UFO programs.
     
-- [[UFO_Crashes_and_Retrievals]] – Other cases of alleged UAP retrievals.
+- [[UFO Crashes and Retrievals]] – Other cases of alleged UAP retrievals.
     
 
 ---

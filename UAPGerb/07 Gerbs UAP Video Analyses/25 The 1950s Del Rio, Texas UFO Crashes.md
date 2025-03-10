@@ -57,7 +57,7 @@ The two incidents covered:
 ## 🔗 Cross-References
 
 - [[MJ-12_Documents]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Wilson Davis Memo]]
 - [[Project_Blue_Book_Records]]
 

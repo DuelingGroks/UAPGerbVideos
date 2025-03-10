@@ -27,7 +27,7 @@ A short documentary on two former **USMC soldiers** who encountered **UFOs** and
 ## 🔗 Related Topics
 
 - [[02 Government Secrecy Index]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Whistleblower_Protections]]
 - [[Military_Encounters]]
 

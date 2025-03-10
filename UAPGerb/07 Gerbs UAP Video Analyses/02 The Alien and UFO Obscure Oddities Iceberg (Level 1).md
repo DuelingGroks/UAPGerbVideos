@@ -35,7 +35,7 @@ Strange crafts, extraterrestrials, conspiracy theories, and more! Join me as we 
 
 - [[02 Government Secrecy Index]]
 - [[Military_Encounters]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Ancient_Aliens_Theories]]
 - [[Reverse_Engineering]]
 

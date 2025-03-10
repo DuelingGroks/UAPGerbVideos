@@ -37,7 +37,7 @@ Find **Part One Here**: [Watch Here](https://www.youtube.com/watch?v=1en219Vk9K4
 
 - [[02 Government Secrecy Index]]
 - [[Military_Encounters]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Ancient_Aliens_Theories]]
 - [[Reverse_Engineering]]
 
@@ -232,189 +232,312 @@ The [[1897 Aurora Texas UFO incident]] is the first alleged UFO crash retrieval 
 
 00;18;56;29 - 00;19;33;29
 Gerb
-According to The Dallas Morning News, on April 19th, 1897, the craft was piloted by one sole inhabitant who was deceased with his remains badly disfigured. But the paper still says, quote, he was not an inhabitant of this world. According to the same article in the paper, the ship was too badly wrecked to form any conclusion on its construction or how it was powered, but it does say the craft was built of an unknown mixture of metal resembling aluminum and silver, and must have weighed several tons.
+According to The Dallas Morning News, on April 19th, 1897, the craft was piloted by one sole inhabitant who was deceased with his remains badly disfigured. But the paper still says, quote, "he was not an inhabitant of this world". According to the same article in the paper, the ship was too badly wrecked to form any conclusion on its construction or how it was powered, but it does say the craft was built of an unknown mixture of metal resembling aluminum and silver, and must have weighed several tons.
 
 00;19;34;02 - 00;20;06;02
-Unknown
-The paper also goes on to say that the town was planning a burial for the pilot the following day, at noon. The wreckage was thrown into a nearby well, and the inhabitant of the craft was buried with a stone slab resembling what was seen of his craft. So is this story real or not? Well, I don't know. But in 1980, in a time magazine interview with Etna, Peggy is an 86 year old Aurora, Texas resident.
+Gerb
+The paper also goes on to say that the town was planning a burial for the pilot the following day, at noon. The wreckage was thrown into a nearby well, and the inhabitant of the craft was buried with a stone slab resembling what was seen of his craft. 
+
+So is this story real or not? Well, I don't know. But in 1980, in a time magazine interview with [[Etta Pegues]] is an 86 year old Aurora, Texas resident.
+>[!note]
+> see https://en.wikipedia.org/wiki/Aurora,_Texas,_UFO_incident
 
 00;20;06;05 - 00;20;42;27
-Unknown
-She said that the story had been fabricated, trying to bring attention to the town's since a railroad bypassed it and the town was slowly dying. So let's take a look at the investigation done by Mouffe on the mutual UFO network, a nonprofit ran to investigate UFO sightings in 1973. Bill Cayce led an investigation into the Aurora, Texas crash in this movement uncovered two new eyewitnesses to the crash Mary Evans, who told how her parents would not let her visit the crash site.
+Gerb
+She said that the story had been fabricated, trying to bring attention to the town's since a railroad bypassed it and the town was slowly dying. 
+
+So let's take a look at the investigation done by [[MUFON]] the mutual UFO network, a nonprofit ran to investigate UFO sightings. In 1973, Bill Cayce led an investigation into the Aurora, Texas crash in this movement uncovered two new eyewitnesses to the crash [[Mary Evans]], who told how her parents would not let her visit the crash site.
 
 00;20;42;27 - 00;21;04;18
-Unknown
-But the parents went to the site and discovered an alien body. And Charlie Stephens, who was ten at the time, who said he saw some sort of airship trailing smoke as it headed north towards Aurora. He wanted to investigate the crash, but his father made him finish chores. His father the next day went into town to see the wreckage.
+Gerb
+But the parents went to the site and discovered an alien body. And [[Charlie Stephens]], who was ten at the time, who said he saw some sort of airship trailing smoke as it headed north towards Aurora. He wanted to investigate the crash, but his father made him finish chores. His father the next day went into town to see the wreckage.
 
 00;21;04;20 - 00;21;28;22
-Unknown
-Move on, then investigated the Aurora Cemetery, where the supposed pilot was buried. They found a grave marker that appeared to show a flying saucer of some sort, as well as strange readings from their metal detector, because, according to some, some parts of the pilot ship were buried with the pilot. Move on. Asked to exhume the site, but the cemetery declined permission.
+Gerb
+[[MUFON]], then investigated the Aurora Cemetery, where the supposed pilot was buried. They found a grave marker that appeared to show a flying saucer of some sort, as well as strange readings from their metal detector, because, according to some, some parts of the pilot ship were buried with the pilot. MUFON asked to exhume the site, but the cemetery declined permission.
 
 00;21;28;25 - 00;21;56;00
-Unknown
-After move on investigation, the marker mysteriously disappeared from the cemetery, and a three inch pipe was placed into the ground where MacFarlane's metal detector no longer picked up metal readings from the grave. It was thus presumed that maybe the metal was removed from the grave if there was some. There. Move on reported that their evidence was inconclusive, but they did not rule out the possibility of a hoax, so think what you will of this case.
+Gerb
+After move on investigation, the marker mysteriously disappeared from the cemetery, and a three inch pipe was placed into the ground where MacFarlane's metal detector no longer picked up metal readings from the grave. 
+It was thus presumed that maybe the metal was removed from the grave if there was some there. [[MUFON]] reported that their evidence was inconclusive, but they did not rule out the possibility of a hoax, so think what you will of this case.
 
 00;21;56;00 - 00;22;27;07
-Unknown
-I'm not quite sure what to think, but it is interesting nonetheless. The 1561 celestial phenomenon over Nuremberg is one of the first examples of a mass UFO sighting in recorded history. In 1561, a broadsheet news article printed in the Holy Roman Empire described a mass sighting of celestial phenomena. Residents saw hundreds of globes, cylinders, rods and strange objects at sunrise.
+Gerb
+I'm not quite sure what to think, but it is interesting nonetheless. 
+
+### The [[1561 Celestial Phenomenon Over Nuremberg]]
+The [[1561 Celestial Phenomenon Over Nuremberg]] is one of the first examples of a mass UFO sighting in recorded history. 
+
+In 1561, a broadsheet news article printed in the Holy Roman Empire, described a mass sighting of celestial phenomena. Residents saw hundreds of globes, cylinders, rods and strange objects at sunrise.
 
 00;22;27;09 - 00;22;52;21
-Unknown
-The objects flew across the sun, giving the appearance of a battle. Residents also claimed to see a black triangular object close to the ground, followed by a crash. Some of the other described shapes included crosses, small spheres, two large crescents, a black spire, and cylindrical objects emitting smaller spheres. So what do the skeptics like to say this is?
+Gerb
+The objects flew across the sun, giving the appearance of a battle. Residents also claimed to see a black triangular object close to the ground, followed by a crash. 
+
+Some of the other described shapes included crosses, small spheres, two large crescents, a black spire, and cylindrical objects emitting smaller spheres. So what do the skeptics like to say this is?
 
 00;22;52;28 - 00;23;22;24
-Unknown
-Well, some think this is an example of Carl Jung's mass hysteria. One of the first collective examples of a collective consciousness forming a narrative. While others like to say, this is a sun dog. I don't think the sun dog explanation is likely, but this case is extremely perplexing nonetheless. Erich von Daniken is a figure we mentioned in our first episode of the iceberg with the Nazca Lines.
+Gerb
+Well, some think this is an example of [[Carl Jung]]'s mass hysteria. One of the first collective examples of a collective consciousness forming a narrative. While others like to say, this is a sun dog. 
+
+I don't think the sun dog explanation is likely, but this case is extremely perplexing nonetheless. 
+### [[Erich von Daniken]]
+[[Erich von Daniken]] is a figure we mentioned in our first episode of the iceberg with the Nazca Lines.
 
 00;23;22;26 - 00;24;04;16
-Unknown
-Von Daniken is the author of chariots of the gods, a book that proposes the ancient astronaut hypothesis in which extraterrestrials made contact with early humans, influencing culture and settlement. Von Daniken proposes that structures such as the Pyramids of Giza, the Maui of Easter Island, and Stonehenge are products of extraterrestrial influence or extraterrestrial building techniques. He presumes that numerous pieces of ancient artwork and sculptures and so forth depict astronauts and their space vehicles, aka extraterrestrials, and their complex technology.
+Gerb
+Von Daniken is the author of [[Chariots of the Gods]], a book that proposes the ancient astronaut hypothesis in which extraterrestrials made contact with early humans, influencing culture and settlement. 
+
+Von Daniken proposes that structures such as the Pyramids of Giza, the Maui of Easter Island, and Stonehenge are products of extraterrestrial influence or extraterrestrial building techniques. He presumes that numerous pieces of ancient artwork and sculptures and so forth depict astronauts and their space vehicles, aka extraterrestrials, and their complex technology.
 
 00;24;04;18 - 00;24;32;04
-Unknown
+Gerb
 Von Daniken likes to explain the origin of religions as ancient humans coming into contact with an alien race so far advanced. They seem divine. Some of von Daniken claims on the ancient astronaut hypothesis and religion, especially the Old Testament in the Bible, are pretty interesting. Von Daniken will talk about Ezekiel's visions of angels and how these angels were actually UFOs.
 
 00;24;32;06 - 00;25;02;18
-Unknown
-If you know anything about what a biblically accurate angel looks like, you'll understand that this would not be a confusing comparison. He also claims that things like the destruction of Sodom by fire and brimstone are actually a nuclear explosion. While I don't love all of von Daniken claims, especially those regarding extraterrestrials building or teaching leverage techniques on how to build ancient monoliths and megaliths.
+Gerb
+If you know anything about what a biblically accurate angel looks like, you'll understand that this would not be a confusing comparison. 
+
+He also claims that things like the destruction of Sodom by fire and brimstone are actually a nuclear explosion. While I don't love all of von Daniken claims, especially those regarding extraterrestrials building or teaching leverage techniques on how to build ancient monoliths and megaliths.
 
 00;25;02;21 - 00;25;34;14
-Unknown
-I do like to think the phenomena has possibly been here for thousands of years, and thus it's not inconceivable to think that whatever this phenomenon is has had influence on ancient human culture and religion and development. The 2009 Norwegian spiral anomaly was a curious and perplexing spiral of blue light seen in the skies of northern Norway and Sweden for a period of ten minutes.
+Gerb
+I do like to think the phenomena has possibly been here for thousands of years, and thus it's not inconceivable to think that whatever this phenomenon is has had influence on ancient human culture and religion and development. 
+
+### 2006 Norwegian Spiral Anomaly
+The [[2009 Norwegian Spiral Anomaly]] was a curious and perplexing spiral of blue light seen in the skies of northern Norway and Sweden for a period of ten minutes.
 
 00;25;34;16 - 00;26;14;23
-Unknown
-This blue spiral looked like it was coming from behind a mountain, stopping in mid-air and spiraling outwards. Some UFO enthusiasts immediately began speculating that this was some sort of UFO or extraterrestrial sign. Although on the 10th of December 2009, the Russian Defense Ministry announced it had been testing Bulava missiles, ballistic missiles that had failed, and thus the third stage of missile separation resulted in fuel and exhaust coming out the sides of the missile, sending it into a spiral, resulting in this sort of spiral shape.
+Gerb
+This blue spiral looked like it was coming from behind a mountain, stopping in mid-air and spiraling outwards. 
+
+Some UFO enthusiasts immediately began speculating that this was some sort of UFO or extraterrestrial sign. Although on the 10th of December 2009, the [[Russian Defense Ministry]] announced it had been testing Bulava missiles, ballistic missiles that had failed, and thus the third stage of missile separation resulted in fuel and exhaust coming out the sides of the missile, sending it into a spiral, resulting in this sort of spiral shape.
 
 00;26;14;25 - 00;26;43;11
-Unknown
-I personally am happy with that explanation. I don't need anything else to explain this issue away, but who knows, maybe it was ETS. The Fermi Paradox is a question proposed by Italian American physicist Enrico Fermi in the summer of 1950. On one day on a lunch break, Fermi asked if the universe is so big. Where is everybody?
+Gerb
+I personally am happy with that explanation. I don't need anything else to explain this issue away, but who knows, maybe it was ETs. 
+
+### Fermi Paradox
+The [[Fermi Paradox]] is a question proposed by Italian American physicist [[Enrico Fermi]] in the summer of 1950. 
+
+On one day on a lunch break, Fermi asked if the universe is so big. Where is everybody?
 
 00;26;43;14 - 00;27;25;12
-Unknown
-The Fermi Paradox highlights the discrepancy between lack of conclusive evidence of an advanced extraterrestrial species and the high likelihood of their existence. I personally despise the Fermi paradox, especially people who fall back on studies in conclusive evidence. The search for extraterrestrial intelligence. It's baffling to me. Ceti is essentially looking at one conical section of an entire observable universe, said he uses radio signatures because they suppose that other civilizations might use radio signatures like we do, because radio signatures carry information over a long range when maybe an extraterrestrial species uses neutrino communication or something like that.
+Gerb
+The [[Fermi Paradox]] highlights the discrepancy between lack of conclusive evidence of an advanced extraterrestrial species and the high likelihood of their existence. I personally despise the Fermi Paradox, especially people who fall back on [[SETI]]'s inconclusive evidence. The search for extraterrestrial intelligence. It's baffling to me.
+
+[[SETI]] is essentially looking at one conical section of an entire observable universe, said he uses radio signatures because they suppose that other civilizations might use radio signatures like we do, because radio signatures carry information over a long range when maybe an extraterrestrial species uses neutrino communication or something like that.
 
 00;27;25;19 - 00;28;01;12
-Unknown
-So Ceti is basically using a magnet to find a needle in the ocean, but a new form of Ceti called Dyson Ceti essentially looks for technosignatures from an extraterrestrial species. These are imprints of a species using advanced technology. Think of a Dyson sphere, but it baffles me that in a universe that is 92 billion light years in diameter, people will fall back on saying that extraterrestrial civilizations don't exist or we haven't found them even though we've been looking.
+Gerb
+So [[SETI]] is basically using a magnet to find a needle in the ocean, but a new form of SETI called [[Dysonian SETI]] essentially looks for techno-signatures from an extraterrestrial species. 
+
+These are imprints of a species using advanced technology. Think of a [[Dyson Sphere]], but it baffles me that in a universe that is 92 billion light years in diameter, people will fall back on saying that extraterrestrial civilizations don't exist or we haven't found them even though we've been looking.
 
 00;28;01;14 - 00;28;29;03
-Unknown
-When we look through a tiny conical section of space and time, wherever we look, it's it's absolutely absurd to me. But for the sake of this entry, let's entertain a few ideas of the Fermi Paradox. One. The great filter. The Great Filter suggests that every advanced civilization goes through some sort of filtering process, where the civilization will either kill itself off and die, or traverse the cosmos.
+Gerb
+When we look through a tiny conical section of space and time, wherever we look, it's it's absolutely absurd to me. But for the sake of this entry, let's entertain a few ideas of the [[Fermi Paradox]]. 
+
+One. The [[Great Filter]]. The Great Filter suggests that every advanced civilization goes through some sort of filtering process, where the civilization will either kill itself off and die, or traverse the cosmos.
 
 00;28;29;05 - 00;29;00;10
-Unknown
-This could be something like harnessing the power of nuclear weapons, or being destroyed, or harnessing advanced AI. Two and this one is really fun to think of the Dark Forest theory. Essentially, it races hide their communication signatures due to the fact they are afraid of something bigger, more powerful, and more advanced from them. So essentially, there's pockets of fire, civilization in the dark forest that they don't want to telegraph their presence.
+Gerb
+This could be something like harnessing the power of nuclear weapons, or being destroyed, or harnessing advanced AI. 
+
+Two and this one is really fun to think of the [[Dark Forest Theory]]. Essentially, it races hide their communication signatures due to the fact they are afraid of something bigger, more powerful, and more advanced from them. So essentially, there's pockets of fire, civilization in the dark forest that they don't want to telegraph their presence.
 
 00;29;00;12 - 00;29;25;00
-Unknown
-Three most alien civilizations are aquatic, and thus we cannot detect bio or technosignatures from light years and light years away. Four we are early. This suggests that although we come from a generation to star, we as humans are one of the precursor civilizations to this universe, that we are one of the first civilizations, an advanced species to form.
+Gerb
+Three most alien civilizations are aquatic, and thus we cannot detect bio or techno-signatures from light years and light years away. 
+
+Four we are early. This suggests that although we come from a generation to star, we as humans are one of the precursor civilizations to this universe, that we are one of the first civilizations, an advanced species to form.
 
 00;29;25;00 - 00;29;50;08
-Unknown
-I think this is very unlikely, but fun to think about. And five we are late. This theory suggests that we live in a graveyard. Essentially, all advanced civilizations have died out for one reason or another, and we are the last. Maybe I'll make a video someday. Like top ten most Interesting Solutions to the Fermi Paradox. But for now, just know that I do not like the Fermi Paradox.
+Gerb
+I think this is very unlikely, but fun to think about. 
+
+And five we are late. This theory suggests that we live in a graveyard. Essentially, all advanced civilizations have died out for one reason or another, and we are the last. Maybe I'll make a video someday. Like top ten most Interesting Solutions to the [[Fermi Paradox]]. But for now, just know that I do not like the Fermi Paradox.
 
 00;29;50;08 - 00;30;22;06
-Unknown
-I think it's limited. I think it is ignorant. Let's move on. Speculative evolution is the process of utilizing current biological knowledge of life here on Earth to extrapolate, to speculate. Biology and evolution of extraterrestrial species. Speculative evolution is often considered hard science fiction, because it does incorporate real biology to try and determine what a species might look like on another planet.
+Gerb
+I think it's limited. I think it is ignorant. Let's move on. 
+
+### Speculative Evolution
+Speculative evolution is the process of utilizing current biological knowledge of life here on Earth to extrapolate, to speculate biology and evolution of extraterrestrial species. 
+
+Speculative evolution is often considered hard science fiction, because it does incorporate real biology to try and determine what a species might look like on another planet.
 
 00;30;22;06 - 00;30;52;08
-Unknown
-Due to its atmosphere, thick terrestrial and solar conditions. This look at evolution is also sometimes used for educational purposes, to hypothesize what some signs of early life may have looked like on this planet. A really good book on this subject is All Tomorrows by Kim Coleman, which explores a hypothetical future path of human evolution set in the near future to about a billion years from now.
+Gerb
+Due to its atmospheric, terrestrial and solar conditions. 
+
+This look at evolution is also sometimes used for educational purposes, to hypothesize what some signs of early life may have looked like on this planet. 
+
+A really good book on this subject is [[All Tomorrows]] by [[CM Kozemen]], which explores a hypothetical future path of human evolution set in the near future to about a billion years from now it's really interesting. Give it a read. 
 
 00;30;52;08 - 00;31;27;09
-Unknown
-It's really interesting. Give it a read. The Anunnaki are an ancient race of gods worshiped by the Sumerians, Acadians, Assyrians and Babylonians. Now, why we're all here, and where you've heard of the Anunnaki are from Zacharias Kitchen's transcriptions of the ancient Sumerian tablets, where Sitchin claims that the Anunnaki are an ancient, advanced race of extraterrestrials from the undiscovered ninth planet in our solar system, Nibiru.
+Gerb
+
+### Annunaki
+The [[Anunnaki]] are an ancient race of gods worshiped by the Sumerians, Acadians, Assyrians and Babylonians. 
+
+Now, why we're all here, and where you've heard of the Anunnaki are from [[Zecharia Sitchen]]'s transcriptions of the ancient Sumerian tablets, where Sitchin claims that the Anunnaki are an ancient, advanced race of extraterrestrials from the undiscovered ninth planet in our solar system, [[Nibiru]].
 
 00;31;27;12 - 00;32;02;09
-Unknown
-Sorry, Pluto, but you are most certainly not a planet. But anyways, according to Sitchin, the Anunnaki came to Earth around half a million years ago to construct a base of operations in order to mine gold. The Anunnaki combined their DNA with that of Homo erectus to create a species of slave miners, now known as modern humans. The Anunnaki were then forced to flee Earth due to Antarctic glaciers melting, causing the Great Flood, which also destroyed their earth bound base.
+Gerb
+Sorry, Pluto, but you are most certainly not a planet. But anyways, according to Sitchin, the Anunnaki came to Earth around half a million years ago to construct a base of operations in order to mine gold. 
+
+The Anunnaki combined their DNA with that of Homo erectus to create a species of slave miners, now known as modern humans. The Anunnaki were then forced to flee Earth due to Antarctic glaciers melting, causing the Great Flood, which also destroyed their earth bound base.
 
 00;32;02;12 - 00;32;33;07
-Unknown
-And if you remember from our first episode with David Eick in The reptilians, this man claims that the reptilians are in fact the Anunnaki. So what do I think of this? Zacharias Hitchens translations of the Sumerian texts are known to be inaccurate and false to a very high degree. I do not think this is true. When I was a young conspiracy kid, I loved thinking about the Anunnaki and Nibiru and a mysterious extra planet in our solar system.
+Gerb
+And if you remember from our first episode with [[David Icke]] and The reptilians, this man claims that the reptilians are in fact the [[Anunnaki]]. 
+
+So what do I think of this? [[Zecharia Sitchen]]'s translations of the Sumerian texts are known to be inaccurate and false to a very high degree. 
+
+I do not think this is true. When I was a young conspiracy kid, I loved thinking about the [[Anunnaki]] and [[Nibiru]] and a mysterious extra planet in our solar system.
 
 00;32;33;07 - 00;32;58;00
-Unknown
-But I think this is absurd. Again, what we talked about, I don't think it's insane to think that some sort of civilization had an effect on ancient man, or even possibly tampered with our DNA. But I do not believe in the story of the Anunnaki needing to create humans to mine gold for them. The Galactic Federation is pretty self-explanatory.
+Gerb
+But I think this is absurd. Again, what we talked about, I don't think it's insane to think that some sort of civilization had an effect on ancient man, or even possibly tampered with our DNA. 
+
+But I do not believe in the story of the Anunnaki needing to create humans to mine gold for them. 
 
 00;32;58;02 - 00;33;29;13
 Unknown
-Think of Star Wars. Think of a network of extraterrestrial species that communicate, trade, interact, possibly war, all under one global banner of some governing body. Now, what's interesting about a supposed galactic Federation in our Milky Way galaxy in 2020, former head of Israel's military space program, Haim is said in an interview said that humans weren't ready for contact with extraterrestrials.
+### The [[Galactic Federation]]
+The [[Galactic Federation]] is pretty self-explanatory. Think of Star Wars. Think of a network of extraterrestrial species that communicate, trade, interact, possibly war, all under one global banner of some governing body. 
+
+Now, what's interesting about a supposed galactic Federation in our Milky Way galaxy.
+
+In 2020, former head of Israel's military space program, [[Haim Eshed]] in an interview said that humans weren't ready for contact with extraterrestrials.
 
 00;33;29;16 - 00;33;57;08
-Unknown
-In this interview, he claimed there was a Galactic Federation of extraterrestrials, some of which already existed on Earth. There's also a supposed CIA agent, John Ramirez, who has made similar claims of a present Galactic Federation. I think it's quite plausible. We exist in a galaxy that has a present Galactic Federation. I don't know for sure. I don't know if anyone does.
+Gerb
+In this interview, he claimed there was a [[Galactic Federation]] of extraterrestrials, some of which already existed on Earth. 
+
+There's also a supposed CIA agent, [[John Ramirez]], who has made similar claims of a present [[Galactic Federation]]. 
+
+I think it's quite plausible. We exist in a galaxy that has a present [[Galactic Federation]]. I don't know for sure. I don't know if anyone does.
 
 00;33;57;11 - 00;34;31;06
-Unknown
-Maybe some people do, but I think it's quite possible, and I would be fascinated to understand how a galactic network of extraterrestrials trade and interact with one another. If there's a common language, if there's common practices and culture and society. It's fascinating to think about. Indigo children. I'm going to be straight up honest with you guys. I have no idea why this was included in the iceberg, especially the second layer of this iceberg.
+Gerb
+Maybe some people do, but I think it's quite possible, and I would be fascinated to understand how a galactic network of extraterrestrials trade and interact with one another. 
+
+If there's a common language, if there's common practices and culture and society. It's fascinating to think about. 
+
+### Indigo Children
+Indigo children. I'm going to be straight up honest with you guys. I have no idea why this was included in the iceberg, especially the second layer of this iceberg.
 
 00;34;31;08 - 00;34;59;14
-Unknown
-I guess Indigo children are weird little kids who possess special, unusual, and sometimes supernatural traits and abilities like telekinesis. This idea is based on a concept in the 70s by Nancy and Tap, who said she began to notice Indigo children around the late 1960s. Look, I have no idea how this is supposed to be related to UFOs or extraterrestrials.
+Gerb
+I guess Indigo children are weird little kids who possess special, unusual, and sometimes supernatural traits and abilities like telekinesis. 
+
+This idea is based on a concept in the 70s by [[Nancy Anne Tap]], who said she began to notice Indigo children around the late 1960s. Look, I have no idea how this is supposed to be related to UFOs or extraterrestrials.
 
 00;34;59;16 - 00;35;32;08
-Unknown
-My guess is maybe these are like hybrid children. I don't know. I'm not a fan of this entry. I think it's really stupid if I'm being honest, but got it covered anyways. Gary McKinnon is a Scottish hacker who in 2002 perpetrated the biggest military computer hack of all time. McKinnon hacked numerous systems in the US military to look for a UFO cover up and free energy suppression.
+Gerb
+My guess is maybe these are like hybrid children. I don't know. I'm not a fan of this entry. I think it's really stupid if I'm being honest, but got it covered anyways. 
+
+### Gary McKinnon
+[[Gary McKinnon]] is a Scottish hacker who in 2002 perpetrated the biggest military computer hack of all time. McKinnon hacked numerous systems in the US military to look for a UFO cover up and free energy suppression.
 
 00;35;32;11 - 00;36;03;17
-Unknown
-During his hack, McKinnon was able to hack into 97 US military and NASA computers over a 13 month period between February oh one and March oh two, all while in the house of his girlfriend's aunt in London. The US Military Cyber Security Division at the time was plain stupid games and winning stupid prizes. Gary McKinnon was able to guess basic passwords such as password to hack into some terminals.
+Gerb
+During his hack, McKinnon was able to hack into 97 US military and NASA computers over a 13 month period between February 01 and March 02, all while in the house of his girlfriend's aunt in London. 
+
+The US Military Cyber Security Division at the time was playing stupid games and winning stupid prizes. 
+
+Gary McKinnon was able to guess basic passwords such as 'password' to hack into some terminals.
 
 00;36;03;20 - 00;36;34;09
-Unknown
-Anyways, what did McKinnon say he found? Well, to start, McKinnon acted on a hunch. That one Donna Hare, who was a former NASA launch photographic specialist, said that in building eight of Johnson Space Center, there was a lab set aside specially for airbrushing out UFOs from high resolution satellite imagery. McKinnon found and was able to access machines from building eight, upon which he found folders titled raw and processed.
+Gerb
+Anyways, what did McKinnon say he found? 
+
+Well, to start, McKinnon acted on a hunch. That one [[Donna Hare]], who was a former NASA launch photographic specialist, said that in building eight of Johnson Space Center, there was a lab set aside specially for airbrushing out UFOs from high resolution satellite imagery. 
+
+McKinnon found and was able to access machines from building eight, upon which he found folders titled raw and processed.
 
 00;36;34;11 - 00;37;00;15
-Unknown
-In these folders, he would find images around the size of 250MB, which at the time would have taken a long time as his terminal was only able to download about one megabyte every five minutes. McKinnon began to find a single image in the raw folder. He found what appeared to be a blue and white planet with a black backdrop.
+Gerb
+In these folders, he would find images around the size of 250MB, which at the time would have taken a long time as his terminal was only able to download about one megabyte every five minutes. 
+
+McKinnon began to find a single image in the raw folder. He found what appeared to be a blue and white planet with a black backdrop.
 
 00;37;00;17 - 00;37;32;01
-Unknown
-Superimposed on to that was a tubular form that was metallic white and had domes around its central circumference and at its ends. The craft had no rivets or seams and looked futuristic, though of course, due to the low resolution a number of shades. McKinnon couldn't make out too much detail from the imagery at this same time is when he saw his cursor began to move click out, and he was thus caught.
+Gerb
+Superimposed on to that was a tubular form that was metallic white and had domes around its central circumference and at its ends. 
+
+The craft had no rivets or seams and looked futuristic. Though of course, due to the low resolution a number of shades. McKinnon couldn't make out too much detail from the imagery. 
+
+At this same time is when he saw his cursor began to move click out, and he was thus caught.
 
 00;37;32;03 - 00;37;59;13
-Unknown
-Now, besides this incident, which occurred at the end of this hack, McKinnon was also able to find some other extremely interesting things. He found a 300 military personnel ledger that was a secret program called the Solar Warden. This program was a US military secret battalion in space that was used by the US Navy network and space operations Command.
+Gerb
+Now, besides this incident, which occurred at the end of this hack, McKinnon was also able to find some other extremely interesting things. 
+
+He found a 300 military personnel ledger that was a secret program called the [[Solar Warden]]. This program was a US military secret battalion in space that was used by the US Navy network and space operations Command.
 
 00;37;59;16 - 00;38;35;05
-Unknown
-The necessary. In this, McKinnon found the Pentagon files storing quote extraterrestrial officers and quote contact between fleets. Among these were two ship names the USS, not USS. The USS, with the third letter maybe standing for space LeMay and Helen Carter. McKinnon said that the extraterrestrials officer list was not a list of aliens, but a list of officers who do not work on Earth.
+Gerb
+The [[NNSOC]]. In this, McKinnon found the Pentagon files storing quote "extraterrestrial officers" and quote "contact between fleets". Among these were two ship names the USSS, not USS. The USSS, with the third letter maybe standing for space LeMay and Helen Carter. 
+
+McKinnon said that the extraterrestrials officer list was not a list of aliens, but a list of officers who do not work on Earth.
 
 00;38;35;08 - 00;39;04;08
-Unknown
-They serve a fleet of spaceships that operate outside of this planet. There is no doubt that McKinnon believes he is telling the truth and I don't know. I think there could be some credibility to what he says, especially the photos where UAP are airbrushed out of high res satellite imagery. Chris Mellon has commented on similar things that 4K satellite footage of UAP exists, but are classified or tampered with.
+Gerb
+They serve a fleet of spaceships that operate outside of this planet. 
+
+There is no doubt that McKinnon believes he is telling the truth and I don't know. I think there could be some credibility to what he says, especially the photos where UAP are airbrushed out of high-res satellite imagery. 
+
+[[Christopher Mellon|Chris Mellon]] has commented on similar things that 4K satellite footage of UAP exists, but are classified or tampered with.
 
 00;39;04;11 - 00;39;41;14
-Unknown
-Heaven's gate. Now, I can't do too much justice to Heaven's Gate because there are some pretty incredible documentaries on YouTube about this cult. So I will just give an official overview. Heaven's gate was a UFO cult started by Bonnie Nettles in 1974. The group believed that they could transform themselves into immortal extraterrestrial beings by rejecting their human nature, and they would ascend to Heaven, referred to as the next level or the next evolutionary level above human.
+Gerb
+
+### [[Heaven's Gate]]
+[[Heaven's Gate. Now]], I can't do too much justice to Heaven's Gate because there are some pretty incredible documentaries on YouTube about this cult. So I will just give an official overview.
+
+Heaven's gate was a UFO cult started by [[Bonnie Nettles]] in 1974. 
+
+The group believed that they could transform themselves into immortal extraterrestrial beings by rejecting their human nature, and they would ascend to Heaven, referred to as the next level or the next evolutionary level above human.
 
 00;39;41;17 - 00;40;07;17
-Unknown
-In 1997 and the passing of the Halley Bopp comet, the group thought that a UFO trailing the comet was the only way to evacuate the Earth, and thus 39 members of the court decided to give themselves a game over screen. Yeah, so there's a lot more interesting things on Heaven's Gate. YouTuber Dan Tobias just did a really interesting video on this.
+Gerb
+In 1997 and the passing of the [[Halley Bopp comet]], the group thought that a UFO trailing the comet was the only way to evacuate the Earth, and thus 39 members of the court decided to give themselves a game over screen. 
+
+Yeah, so there's a lot more interesting things on Heaven's Gate. YouTuber Dan Tobias just did a really interesting video on this.
 
 00;40;07;20 - 00;40;33;20
-Unknown
-Cults aren't my specialty, so I don't want to dive in too much. But if you want to know more, that's a great video and I'd recommend checking it out. Interplanetary contamination is actually a crucial thing to consider when planning space travel. It is basically bringing microbial life, or an invasive species from one planet to a new planet where the life is foreign.
+Gerb
+Cults aren't my specialty, so I don't want to dive in too much. But if you want to know more, that's a great video and I'd recommend checking it out. 
+
+### Interplanetary Contamination
+Interplanetary contamination is actually a crucial thing to consider when planning space travel. It is basically bringing microbial life, or an invasive species from one planet to a new planet where the life is foreign.
 
 00;40;33;23 - 00;41;10;08
-Unknown
-There are two types of interplanetary contamination. Forward contamination is the transfer of life or other organisms from Earth to a foreign celestial body, and back contamination, which is the introduction of an extraterrestrial organism to Earth, which could have potentially dangerous consequences to all of humanity. If you have seen the film alien, a good example of bad contamination would be the crew of the Nostromo bringing the Xenomorph back to Earth after being contaminated by such a parasitic species.
+Gerb
+There are two types of interplanetary contamination. Forward contamination is the transfer of life or other organisms from Earth to a foreign celestial body, and back contamination, which is the introduction of an extraterrestrial organism to Earth, which could have potentially dangerous consequences to all of humanity. 
+
+If you have seen the film Alien, a good example of bad contamination would be the crew of the Nostromo bringing the Xenomorph back to Earth after being contaminated by such a parasitic species.
 
 00;41;10;10 - 00;41;36;04
-Unknown
-Fortunately, there's rigorous protocol for spacecraft returning to Earth and any samples that spacecraft may have collected over its time in the cosmos and on another celestial body, and to prevent forward contamination. All spacecraft are pretty sterilized before they're sent out into the upper atmosphere and beyond. Although in 2019, if you remember, there was an Indian spacecraft that crashed onto the moon.
+Gerb
+Fortunately, there's rigorous protocol for spacecraft returning to Earth and any samples that spacecraft may have collected over its time in the cosmos and on another celestial body, and to prevent forward contamination. All spacecraft are pretty sterilized before they're sent out into the upper atmosphere and beyond. 
+
+Although in 2019, if you remember, there was an Indian spacecraft that crashed onto the moon.
 
 00;41;36;07 - 00;42;01;24
-Unknown
+Gerb
 There was a sample of tardigrades in that spacecraft that some scientists now are worried that there is some sort of lineage of tardigrades that have been surviving on the moon for a while, but let's just hope there isn't some far dormant, terrible extraterrestrial parasite or virus that is lying dormant on a meteor headed to Earth. Let's just keep our fingers crossed.
 
 00;42;01;27 - 00;42;24;25
-Unknown
+Gerb
+
+### Outro
 My friends. Thank you so much for watching. I hope you found some entries you enjoyed, thought were mysterious, or thought were laughably dumb. This is part two of the iceberg of six parts. Expect part three and a new microphone, which I just got. I just didn't want to record with a new mic. That's much better halfway through the video, expect that next episode some smoother audio quality.
 
 00;42;24;26 - 00;42;26;14
-Unknown
+Gerb
 I'll catch you all later. Thank you.
 

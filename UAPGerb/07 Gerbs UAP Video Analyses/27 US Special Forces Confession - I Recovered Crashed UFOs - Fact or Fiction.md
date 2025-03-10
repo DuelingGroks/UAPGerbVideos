@@ -50,7 +50,7 @@ Topics covered:
 
 ## 🔗 Cross-References
 
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Whistleblowers_and_Testimonies]]
 - [[Reverse_Engineering_and_Private_Sector]]
 - [[UFOs_and_Government_Secrecy]]

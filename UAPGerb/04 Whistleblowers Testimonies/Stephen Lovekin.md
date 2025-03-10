@@ -20,7 +20,7 @@ Stephen Lovekin was a **U.S. Army Signal Corps officer** who served in the **Whi
 
 - [[02 Government Secrecy Index]]
 - [[Military_Encounters]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Whistleblower_Protections]]
 
 ## 📂 Sources & References

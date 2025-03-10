@@ -39,7 +39,7 @@ RB's story suggests that the **U.S. military had recovered non-human craft decad
 ## 🔗 Related Documents & Cross-References
 
 - [[26 UFO Whistleblowers (Vol.2)]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Wright Patterson AFB Blue Room]]
 - [[Military_Whistleblower_Testimonies]]
 

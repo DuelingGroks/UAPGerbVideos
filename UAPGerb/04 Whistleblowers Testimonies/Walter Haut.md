@@ -20,7 +20,7 @@ Walter Haut was the **Public Relations Officer** for the **509th Bomb Group** at
 
 - [[1947 Roswell Crash]]
 - [[02 Government Secrecy Index]]
-- [[UFO_Crashes_and_Retrievals]]
+- [[UFO Crashes and Retrievals]]
 - [[Whistleblower_Protections]]
 
 ## 📂 Sources & References
