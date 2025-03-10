@@ -127,70 +127,74 @@ The Men in Black are a shadowy organization featured prominently in ufology and 
 
 00;08;36;03 - 00;09;06;17
 Gerb
-Essentially, the Men in Black are suit clad government agents who are used to question, interrogate, threaten, harass, and sometimes a assassinate. Experiencers of UFOs and extraterrestrials. The legend of the Men in Black can be traced back to June 27th, 1947. Harold Dahl was on a conservation mission on the Puget Sound near the eastern shore of Washington's Maori island.
+Essentially, the Men in Black are suit clad government agents who are used to question, interrogate, threaten, harass, and sometimes a assassinate. Experiencers of UFOs and extraterrestrials. 
+The legend of the [[Men in Black]] can be traced back to June 27th, 1947. Harold Dahl was on a conservation mission on the Puget Sound near the eastern shore of Washington's [[Maury island]].
 
 00;09;06;19 - 00;09;30;23
-Unknown
+Gerb
 I believe he was gathering logs or just doing some outdoor work, when he saw six donut shaped obstacles hovering about half a mile above his boat. Some debris fell from the obstacles, a piece of which struck in killed his dog. Dall was able to take pictures of the craft and record some footage. The following day, doll was visited by a man in a black suit.
 
 00;09;30;26 - 00;09;50;17
-Unknown
+Gerb
 The two head to a local diner, where the man was able to recount in extreme detail what Dahl had witnessed the night before. The man said, quote, what I have said to you is proof to you that I know a great deal more about this experience of yours than you will want to believe. Dahl was then told not to speak of the incident.
 
 00;09;50;17 - 00;10;13;25
-Unknown
-If he did, bad things would happen. As a final statement on the Men in Black. I'd like to say that these guys don't always need to be in suits. Okay. What? You could consider the men in black. The people opposing any sort of discussion or sharing of information or footage of UFOs, could also just be described as men in military fatigues.
+Gerb
+If he did, bad things would happen. As a final statement on the Men in Black. I'd like to say that these guys don't always need to be in suits. Okay. What you could consider the men in black. The people opposing any sort of discussion or sharing of information or footage of UFOs, could also just be described as men in military fatigues.
 
 00;10;13;28 - 00;10;40;04
-Unknown
-This is what happened during the Roswell incident with Jesse, Marcel and the girl whose fireman father witnessed the crash craft, as well as Lieutenant Robert Jacobs and his footage of a of a UFO disabling a nuclear warhead. So the men can be in suits that dives a little bit more into the paranormal and weird things, or just men in military fatigues blocking any sort of conversation or spreading of information.
+Gerb
+This is what happened during the Roswell incident with [[Jesse Marcel]] and the girl whose fireman father witnessed the crash craft, as well as Lieutenant [[Robert Jacobs]] and his footage of a of a UFO disabling a nuclear warhead. So the men can be in suits that dives a little bit more into the paranormal and weird things, or just men in military fatigues blocking any sort of conversation or spreading of information.
 
 00;10;40;06 - 00;11;07;21
-Unknown
+Gerb
 I would like to mention I think these suit clad men in black are a total hoax and distract from the actual validity of people within the United States government and high ranking officials trying to stop the spread of legitimate UFO sightings and footage. So I am not a fan of the suit clad men in black. I think it's a little bit ridiculous.
 
+### Nazca Lines
 00;11;07;23 - 00;11;34;26
-Unknown
-The Nazca lines. If you have seen Ancient Aliens on the History Channel, I'm willing to bet you have heard of the Nazca Lines. If not, no worries, I got you. The Nazca Lines are a group of geoglyphs made in the soil of the Nazca Desert near southern Peru. It's estimated that most of these pictures depicting animals were created between 500 BC and 500 A.D..
+Gerb
+The Nazca lines. If you have seen Ancient Aliens on the History Channel, I'm willing to bet you have heard of the Nazca Lines. If not, no worries, I got you. The Nazca Lines are a group of geoglyphs made in the soil of the Nazca Desert near southern Peru. It's estimated that most of these pictures depicting animals were created between #500_BC and #500_AD.
 
 00;11;34;28 - 00;12;00;16
-Unknown
-These large geoglyphs were made by making depressions or shallow incisions in the desert floor, removing stones and pebbles, and leaving different colored dirt to be exposed. Now seen from the ground, the Nazca lines appear as nothing more than lines, but when viewed from an aerial position, the Nazca Lines then start to depict the beautiful creatures that they're made to represent.
+Gerb
+These large geoglyphs were made by making depressions or shallow incisions in the desert floor, removing stones and pebbles, and leaving different colored dirt to be exposed. 
+Now seen from the ground, the Nazca lines appear as nothing more than lines, but when viewed from an aerial position, the Nazca Lines then start to depict the beautiful creatures that they're made to represent.
 
 00;12;00;18 - 00;12;24;21
-Unknown
-While it's highly likely that the Nazca Lines were used for ancient religious purposes, such as offerings to gods who would be able to see the lines from the heavens or other varying rituals. Author Erich von Daniken, in his book chariots of the gods in 1968, proposed that the Nazca Lines were in fact used as landing sites for UFOs.
+Gerb
+While it's highly likely that the Nazca Lines were used for ancient religious purposes, such as offerings to gods who would be able to see the lines from the heavens or other varying rituals. Author [[Erich von Daniken]], in his book [[Chariots of the Gods]] in 1968, proposed that the Nazca Lines were in fact used as landing sites for UFOs.
 
 00;12;24;23 - 00;12;50;24
-Unknown
+Gerb
 He theorized that the shapes and lines were made by extraterrestrials and were created to help steer their spaceships to land safely. Von Daniken claims the patterns at the site looked very similar to modern airport designs, and used this as pieces of evidence to prove that extraterrestrials used this Nazca plane as a landing space for their spacecraft. I, of course, favor the prosaic explanation here.
 
 00;12;50;27 - 00;13;11;08
-Unknown
-I think the Nazca lines were likely used for religious purposes and are also observable from nearby hills and mountains, not just from the air, from airplanes or spacecraft. But it is fun to think about the ancient astronaut theory. I mean, that's why ancient aliens has like 30 seasons or wherever many.
+Gerb
+I think the Nazca lines were likely used for religious purposes and are also observable from nearby hills and mountains, not just from the air, from airplanes or spacecraft. But it is fun to think about the ancient astronaut theory. I mean, that's why [[Ancient Aliens]] has like 30 seasons or wherever many.
 
+### Betty & Barney Hill Incident
 00;13;11;11 - 00;13;41;23
-Unknown
-The Betty and Barney Hill incident is one of the most famous alien abduction stories in US history. Their story begins at around 1030 on September 19th, 1961. The couple was driving back from a vacation near Niagara Falls in Montreal, just south of Lancaster, New Hampshire. Upon driving Betty observed a bright point of light in the sky that moved just below the moon and the planet Jupiter.
+Gerb
+The [[1961 Betty and Barney Hill|Betty and Barney Hill]] incident is one of the most famous alien abduction stories in US history. Their story begins at around 1030 on September 19th, 1961. The couple was driving back from a vacation near Niagara Falls in Montreal, just south of Lancaster, New Hampshire. Upon driving Betty observed a bright point of light in the sky that moved just below the moon and the planet Jupiter.
 
 00;13;41;25 - 00;14;13;00
-Unknown
+Gerb
 Betty noticed the light moved a radically and grew bigger and brighter at various times, and Betty urged Barney to stop the car so the two could take a closer look. Through binoculars, Betty noticed an odd shaped craft travel across the face of the moon with flashing multicolored lights. Initially, Barney thought this may have been a commercial airliner, but as the craft turned towards him and started rapidly descending, he quickly changed his mind.
 
 00;14;13;02 - 00;14;44;22
-Unknown
+Gerb
 The couple then continued driving, observing the well illuminated craft moving erratically back and forth in the night sky. The object rapidly descended toward the hills vehicle, causing Barney to stop the car in the middle of the highway. The silent craft hovered about 80 to 100ft. Above them, reminded Barney of a large pancake. Barney then claimed to have seen 8 to 11 humanoid figures who were all peering out of the craft's windows, looking at him.
 
 00;14;44;24 - 00;15;13;15
-Unknown
-All but one figure then retreated back into the craft. The one remaining figure communicated with Barney telepathically, giving him a message saying, quote, stay where you are and keep looking and quote. Now it's worth mentioning that later on, when Barney reported this abduction to the National Investigations Committee on Aerial Phenomena nightcap, he explicitly stated, quote, beans were somehow not human.
+Gerb
+All but one figure then retreated back into the craft. The one remaining figure communicated with Barney telepathically, giving him a message saying, quote, "stay where you are and keep looking" end quote. Now it's worth mentioning that later on, when Barney reported this abduction to the [[National Investigations Committee on Aerial Phenomena (NICAP)]], he explicitly stated, quote, beings were somehow not human.
 
 00;15;13;18 - 00;15;42;18
-Unknown
+Gerb
 Red lights then began to telescope out of the sides of the craft, and a long structure descended from the bottom of the craft. Approaching Barney. The couple then arrived home perplexed, noticing that their memories became incomplete and fragmented. After observing the craft buzzing towards them. About ten days after the incident, Betty began having strange, vivid dreams for five successive nights.
 
 00;15;42;21 - 00;16;20;26
-Unknown
+Gerb
 Within these dreams, she was escorted by small humanoids 5 to 5ft four inches tall, with Barney walking behind her. She recalls after being walked with the humanoids being set back by her car, where the leader suggests they wait for the craft's departure. The Hills then sought hypnosis to explain their missing time after their encounter. Seeing as their 178 mile drive home from their vacation should have taken about four hours, but their drive took seven, meaning there were three hours of missing time where they could not explain what happened.
 
 00;16;20;28 - 00;16;47;26
