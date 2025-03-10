@@ -76,18 +76,20 @@ contributors:
 
 6. Changelog (Optional)
    You may add a simple list to note major changes:
-   ```markdown
+
+```markdown
    ## CHANGELOG
    - 2025-03-09: Created initial transcript (by Gerb)
    - 2025-03-10: Fixed name spelling (by TURFPTAx)
 ```
+
 How to Contribute
 -----------------
 1. Fork this repository on GitHub.
 2. Clone your fork and create a new branch:
-```
+```markdown
    git checkout -b transcript-fixes-video01
-   ```
+```
 3. Edit the relevant .md file (e.g., 01 Wilson_Davis_Memo_Documentary.md).
 4. Commit and push your changes to your fork.
 5. Open a Pull Request from your fork’s branch back into the main repository.
