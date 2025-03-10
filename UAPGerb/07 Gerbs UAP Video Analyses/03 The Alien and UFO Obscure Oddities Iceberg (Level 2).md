@@ -47,71 +47,87 @@ Find **Part One Here**: [Watch Here](https://www.youtube.com/watch?v=1en219Vk9K4
 
 ## Transcript
 00;00;00;00 - 00;00;23;13
-Unknown
-Ladies and gentlemen, I'm back. Like a boomerang. I am your host, UAP Gerb. And I'd like to welcome you to the second episode of the alien and UFO obscure Oddities iceberg. If you missed level one, I recommend checking that out. First, I will put the video link in the video description. Join me as we tackle layer two. Today we're going to have some strange UFO cases.
+Gerb
+### Introduction
+Ladies and gentlemen, I'm back. Like a boomerang. I am your host, UAP Gerb. And I'd like to welcome you to the second episode of the alien and UFO obscure Oddities iceberg. 
+
+If you missed level one, I recommend checking that out. First, I will put the video link in the video description. Join me as we tackle layer two. Today we're going to have some strange UFO cases.
 
 00;00;23;13 - 00;00;42;18
-Unknown
+Gerb
 We're going to have some weird stuff. We're going to have some sightings that I don't necessarily care for. And I'm going to tell you when I don't like the entry, but we are going to call this layer the Enjoyer. Before we get into everything, please consider liking and subscribing. The first two videos on my channel have done very well and I'm very happy about that.
 
 00;00;42;21 - 00;01;11;13
-Unknown
-I plan to finish up this iceberg and then move back to some interesting documentaries. I did a poll and it looks like some people want to see UAPs in the private sector. So boy do I have some good stuff to touch on for that. So join me as we tackle the Enjoyer layer of the alien and UFO obscure oddities iceberg Japan Airlines Cargo Flights 1628 incident I am thrilled we get to talk about this.
+Gerb
+I plan to finish up this iceberg and then move back to some interesting documentaries. I did a poll and it looks like some people want to see UAPs in the private sector. So boy do I have some good stuff to touch on for that. So join me as we tackle the Enjoyer layer of the alien and UFO obscure oddities iceberg.
+
+### [[1986 Japan Airlines Cargo Flight 1628 Incident|Japan Airlines Cargo Flight 1628 Incident]]
+Japan Airlines Cargo Flights 1628 incident I am thrilled we get to talk about this.
 
 00;01;11;13 - 00;01;40;16
-Unknown
+Gerb
 This is one of my all time favorite UFO cases, and I think it is severely underrated and underrepresented when talking about the phenomena. Before we get started, just know that Aviation Week and Space Technology magazine introduced this as the explanation for the sighting, and it caught on. And people think this is the proper explanation to this case, that what the pilot I'm going to talk about saw were Mars and Jupiter.
 
 00;01;40;18 - 00;02;14;15
-Unknown
-Okay, so let's join Captain Kenji Taraki in his Boeing 747 200 F in his cargo flight from France to Tokyo on the Reykjavik to Anchorage leg at around 5 p.m. on November 17th, 1986, Captain Teriyaki and two crew claimed to see a UFO approached their plane, traveling at 35,000ft from the left. What they saw and described was one large, rounder sized UFO the size of an aircraft carrier.
+Gerb
+Okay, so let's join Captain [[Kenji Terauchi]] in his Boeing 747 200 F in his cargo flight from France to Tokyo on the Reykjavik to Anchorage leg. At around 5 p.m. on November 17th, 1986, Captain Terauchi and two crew claimed to see a UFO approached their plane, traveling at 35,000ft from the left. What they saw and described was one large, rounder sized UFO the size of an aircraft carrier.
 
 00;02;14;18 - 00;02;52;24
-Unknown
-To put this into perspective, about four 747 in diameter. Accompanying this enormous craft were two smaller lights, and the three followed this Boeing 747 for a period of 31 minutes while traveling at cruising speed. Captain Kendrew said the mothership maintained a distance of about 7.5 miles from his aircraft, but was essentially orbiting around his aircraft in a circular motion, sometimes at a constant fixed speeds, sometimes darting in and out around its orbit.
+Gerb
+To put this into perspective, about four 747 in diameter. Accompanying this enormous craft were two smaller lights, and the three followed this Boeing 747 for a period of 31 minutes. While traveling at cruising speed. Captain Kenji said the mothership maintained a distance of about 7.5 miles from his aircraft, but was essentially orbiting around his aircraft in a circular motion, sometimes at a constant fixed speeds, sometimes darting in and out around its orbit.
 
 00;02;52;27 - 00;03;38;24
-Unknown
-It's worth mentioning that these UFOs were tracked on US Federal Aviation Administration and 117 long range 3D phased arrays. The radar confirmed the UFO stayed about 7.5 miles in radius from the aircraft, maintaining that distance but occasionally changing sides during the radar's 12 second interval sweeps. Now, what interests me the most about this case is New York University physics professor Kevin Knuth published an article called Estimating Flight Characteristics of Anomalous Unidentified Aerial Vehicles, in which he tackles a couple famous UFO credible UFO cases throughout history.
+Gerb
+It's worth mentioning that these UFOs were tracked on US Federal Aviation Administration [[ANFPS117 long range 3D phased arrays]]. The radar confirmed the UFO stayed about 7.5 miles in radius from the aircraft, maintaining that distance but occasionally changing sides during the radar's 12 second interval sweeps. Now, what interests me the most about this case is New York University physics professor [[Kevin Knuth]] published an article called [[Estimating Flight Characteristics of Anomalous Unidentified Aerial Vehicles]], in which he tackles a couple famous UFO credible UFO cases throughout history.
 
 00;03;39;01 - 00;04;12;04
-Unknown
+Gerb
 This 1986 incident being one of them. As you'll see in the figure on screen, Knuth modeled the UAPs G-Force that experienced during this circular motion around the craft. If the UAP traveled across the diameter of the circle, it was subject to 68 plus or minus seven G's. If the UAP moved in a circular motion focusing on only the centripetal acceleration, the craft experienced 84 plus or minus eight g's.
 
 00;04;12;10 - 00;04;46;29
-Unknown
-This is substantial. To put this into perspective, this is an incredibly high G-Force sustained for 31 minutes. This amount of G's experienced by a human would kill them and be fatal extremely fast. In fact, nine G's is the limit a trained pilot can handle during a sustained turn in a sustained turn means a minute, not 30 minutes. Wright-Patterson Air Force base.
+Gerb
+This is substantial. To put this into perspective, this is an incredibly high G-Force sustained for 31 minutes. This amount of G's experienced by a human would kill them and be fatal extremely fast. In fact, nine G's is the limit a trained pilot can handle during a sustained turn and a sustained turn means a minute, not 30 minutes. 
+
+### Wright-Patterson Air Force Base
+[[Wright-Patterson AFB|Wright-Patterson Air Force Base]].
 
 00;04;47;01 - 00;05;20;15
-Unknown
-I actually don't know how much I want to go into right part right now, because I would actually like to make a couple videos on this. But essentially, Wright-Patterson Air Force Base has deep ties to ufology, crash retrieval, and reverse engineering, dating back all the way to July 5th of 1947, where it is said that the breeze and bodies were shipped out of hangar 84 in Roswell, New Mexico, to Wright-Patterson Air Force Base.
+Gerb
+I actually don't know how much I want to go into Wright-Pat right now, because I would actually like to make a couple videos on this, but essentially, [[Wright-Patterson AFB|Wright-Patterson Air Force Base]] has deep ties to ufology, crash retrieval, and reverse engineering, dating back all the way to July 5th of 1947, where it is said that debris and bodies were shipped out of hangar 84 in Roswell, New Mexico, to [[Wright-Patterson AFB|Wright-Patterson Air Force Base]].
 
 00;05;20;17 - 00;06;01;00
-Unknown
-So I'm just going to give a little tease where right Pat can be connected to the UFO phenomena. We can look at 1949 through 1955, where Wright, Payton, Battelle performed special metallurgical analysis on anomalous materials. We can look at Lockheed Martin Skunkworks director Ben Rich, where in 1993, at Wright-Patterson Air Force Base, Rich gave a presentation stating, quote, we already have the means to travel among the stars, but these technologies are locked up in the black projects, and it would take an act of God to ever get them out to benefit humanity and anything that you can imagine.
+Gerb
+So I'm just going to give a little tease where Wright-Pat can be connected to the UFO phenomena. We can look at 1949 through 1955, where Wright-Pat and [[Battelle Memorial Institute|Battelle]] performed special metallurgical analysis on anomalous materials. We can look at [[Lockheed Martin]] Skunkworks director [[Ben Rich]], where in 1993, at Wright-Patterson Air Force Base, Rich gave a presentation stating, quote, 
+
+"we already have the means to travel among the stars, but these technologies are locked up in the black projects, and it would take an act of God to ever get them out to benefit humanity and anything that you can imagine, we already know how to do."
+
+End quote.
 
 00;06;01;06 - 00;06;34;08
-Unknown
-We already know how to do. End quote. What about the 24th of January, 1956, where Wright Pat monitored a reported landing of a flying saucer in the Cardigan Province of Afghanistan? USAF attempted to perform an aerial view to determine if authorities were hauling recovered craft to Kabul, Afghanistan. How about the 28th of December 1973, where Senator Barry Goldwater is denied access to UAP information at Wright-Patterson Air Force Base?
+Gerb
+What about the 24th of January, 1956, where Wright-Pat monitored a reported landing of a flying saucer in the [[1956 Kataghan Afghanistan|Kataghan Province of Afghanistan]]? USAF attempted to perform an aerial view to determine if authorities were hauling recovered craft to Kabul, Afghanistan. How about the 28th of December 1973, where Senator [[Barry Goldwater]] is denied access to UAP information at [[Wright-Patterson Air Force Base]]?
 
 00;06;34;16 - 00;07;14;26
-Unknown
-When specifically asking about a quote, room and quote where it was stored. Goldwater stated he was scolded by Yousuf General Curtis LeMay and said, quote, don't ever ask me that question again and quote. And finally, we can look at 2023 and 2024 with the groundbreaking legislation proposed by Chuck Schumer of the 2024 NDAA, UAP Defense Authorization Act, where it's required that all legacy programs and any sort of programs studying UAP or in possession of UAP divulge their materials and findings.
+Gerb
+When specifically asking about a quote, "room" and quote where "it" was stored. Goldwater stated he was scolded by Yousuf General [[Curtis LeMay]] and said, quote, "don't ever ask me that question again" end quote. 
+And finally, we can look at 2023 and 2024 with the groundbreaking legislation proposed by [[Chuck Schumer]] of the [[2024 NDAA]], UAP Defense Authorization Act, where it's required that all legacy programs and any sort of programs studying UAP or in possession of UAP, divulge their materials and findings.
 
 00;07;14;29 - 00;07;37;24
-Unknown
-And guess who the biggest proponent of blocking the amendment is? Representative Mike Turner of Ohio, the same district that represents Wright-Patterson Air Force Base. Now, these are just a couple examples of right part being connected that the phenomena I have 5 to 10 war I could go over right now. But as an iceberg we're just supposed to give a quick summary of these topics.
+Gerb
+And guess who the biggest proponent of blocking the amendment is? Representative [[Mike Turner]] of Ohio, the same district that represents [[Wright-Patterson Air Force Base]]. Now, these are just a couple examples of Wright-Pat being connected that the phenomena I have 5 to 10 more I could go over right now. But as an iceberg we're just supposed to give a quick summary of these topics, I got a lot more on this.
 
 00;07;37;24 - 00;08;08;17
-Unknown
-I got a lot more on this. Dyson sphere. Now remember in video one, we discussed a Kardashev civilization, specifically a type two Kardashev civilization that is able to harness the entire energy output of its host star. While a Dyson sphere is a theoretical device that enables a civilization to do just this. A Dyson sphere is a megastructure dreamt up by scientist Freeman Dyson.
+Gerb
+
+### Dyson Sphere
+[[Dyson Sphere]]. Now remember in video one, we discussed a Kardishev civilization, specifically a type two Kardishev civilization that is able to harness the entire energy output of its host star. While a Dyson sphere is a theoretical device that enables a civilization to do just this. A Dyson sphere is a megastructure dreamt up by scientist [[Freeman Dyson]].
 
 00;08;08;19 - 00;08;39;29
-Unknown
-The purpose of the Dyson sphere is to entirely encompass a host civilization star. Drawing energy through solar means through fusion. Not quite sure how. So a lot of theory still on a Dyson sphere, but a large outer shell of a sun essentially. And as limited as it is Ceti, the search for extraterrestrial intelligence has begun looking at stars for signs of Dyson spheres, for signs of an advanced civilization.
+Gerb
+The purpose of the Dyson sphere is to entirely encompass a host civilization star. Drawing energy through solar means through fusion. Not quite sure how. So a lot of theory still on a Dyson sphere, but a large outer shell of a sun essentially. And as limited as it is [[SETI]], the search for extraterrestrial intelligence has begun looking at stars for signs of Dyson spheres, for signs of an advanced civilization.
 
 00;08;40;01 - 00;09;14;18
-Unknown
+Gerb
 Now, the feasibility of creating a Dyson sphere currently is not necessarily possible with our current engineering capabilities. But interestingly, one feasible way to create one of these megastructures is to utilize von Neumann self-replicating probes that would be able to harness precious metals and materials from the asteroid belt and from various meteors and various moons, and be able to self replicate and create this sphere without any direct human hands in the cosmos.
 
 00;09;14;20 - 00;09;43;13
