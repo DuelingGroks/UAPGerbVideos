@@ -1,3 +1,4 @@
+![[22-USO - Unidentified Submerged Objects-thumbnail.jpg]]
 ## aliases: ["Video 22: [[USO - Unidentified Submerged Objects]]"]
 
 ## tags: #UAPVideos #USO #TransmediumUAP

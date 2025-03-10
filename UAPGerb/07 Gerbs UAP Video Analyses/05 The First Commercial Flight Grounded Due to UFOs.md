@@ -1,4 +1,4 @@
-
+![[05-The First Commercial Flight Grounded Due to UFOs-thumbnail.jpg]]
 ## 🎥 Video Details
 
 - **Title:** The First Commercial Flight Grounded Due to UFOs

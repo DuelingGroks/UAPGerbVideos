@@ -1,3 +1,4 @@
+![[34-Alien Reproduction Vehicle - TR-3B and the Flying Triangles-thumbnail.jpg]]
 ## aliases: ["Video 34: Alien Reproduction Vehicle - TR-3B and the Flying Triangles"]
 
 ## tags: #UAPVideos #ReverseEngineering #TR3B #BlackPrograms #FlyingTriangles

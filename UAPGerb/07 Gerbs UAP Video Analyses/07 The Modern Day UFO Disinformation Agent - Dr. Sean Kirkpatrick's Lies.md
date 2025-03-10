@@ -1,3 +1,4 @@
+![[07-The Modern Day UFO Disinformation Agent - Dr. Sean Kirkpatrick's Lies-thumbnail.jpg]]
 ### 📅 Date Published
 
 Jan 26, 2024

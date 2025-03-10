@@ -1,3 +1,4 @@
+![[29-The 1974 Coyame, Mexico UFO Crash-thumbnail.jpg]]
 ## aliases: ["Video 29: The 1974 Coyame, Mexico UFO Crash"]
 
 ## tags: #UAPVideos #UFOCrashes #CoyameIncident

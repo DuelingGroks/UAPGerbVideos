@@ -1,3 +1,4 @@
+![[26-UFO Whistleblowers [Vol.2]-thumbnail.jpg]]
 ## aliases: ["Video 26: [[UFO Whistleblowers [Vol.2]]]"]
 
 ## tags: #UAPVideos #UFOWhistleblowers #Disclosure

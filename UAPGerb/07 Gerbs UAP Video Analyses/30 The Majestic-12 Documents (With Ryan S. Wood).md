@@ -1,3 +1,4 @@
+![[30-The Majestic-12 Documents [With Ryan S. Wood]-thumbnail.jpg]]
 ## aliases: ["Video 30: The Majestic-12 Documents [With Ryan S. Wood]"]
 
 ## tags: #UAPVideos #GovernmentSecrecy #Majestic12

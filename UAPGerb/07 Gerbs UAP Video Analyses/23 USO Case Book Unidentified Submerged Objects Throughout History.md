@@ -1,3 +1,4 @@
+![[23-USO Case Book Unidentified Submerged Objects Throughout History-thumbnail.jpg]]
 ## aliases: ["Video 23: [[USO Case Book – Unidentified Submerged Objects Throughout History]]"]
 
 ## tags: #UAPVideos #USO #TransmediumUAP

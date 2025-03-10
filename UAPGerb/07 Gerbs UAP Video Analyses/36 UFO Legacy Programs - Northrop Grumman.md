@@ -1,3 +1,4 @@
+![[36-Dugway Proving Ground - UFO Legacy Programs-thumbnail.jpg]]
 ## aliases: ["Video 36: UFO Legacy Programs - Northrop Grumman"]
 
 ## tags: #UAPVideos #ReverseEngineering #NorthropGrumman #BlackPrograms #UFOCrashRetrieval
@@ -90,3 +91,5 @@ Topics covered:
 ---
 
 **Join the UAPGerb Discord**: [discord.gg/XXXXXX](https://discord.gg/XXXXXX)
+
+## Transcript

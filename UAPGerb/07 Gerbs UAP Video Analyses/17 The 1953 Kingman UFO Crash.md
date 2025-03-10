@@ -1,3 +1,4 @@
+![[17-The 1953 Kingman, Arizona UFO Crash-thumbnail.jpg]]
 ### 📌 Overview
 
 The [[1953 Kingman, Arizona UFO Crash]] is one of the most debated cases in UFO crash retrieval history. Multiple testimonies suggest that a **disc-shaped craft** was recovered by the U.S. military, and personnel involved in its study were allegedly sworn to secrecy. The event has been referenced in **whistleblower testimonies**, **reverse engineering discussions**, and **UFO disclosure efforts**.

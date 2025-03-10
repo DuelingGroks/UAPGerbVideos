@@ -2,7 +2,7 @@
 aliases: ["Video 14: Battelle Memorial Institute", "Private Sector UFOs", "BattelleUFO"]
 tags: ["#UAPVideos", "#Battelle", "#ReverseEngineering", "#PrivateSector"]
 ---
-
+![[14-UFOs in the Private Sector - Battelle Memorial Institute-thumbnail.jpg]]
 # 14. UFOs in the Private Sector – Battelle Memorial Institute
 **Video Published:** February 18, 2024  
 **Video Link:** [YouTube – Battelle & UFOs](https://www.youtube.com/watch?v=tISTJRPOqFo)  

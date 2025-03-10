@@ -1,3 +1,4 @@
+![[24-UFO Whistleblowers [Vol.1]-thumbnail.jpg]]
 ## aliases: ["Video 24: [[UFO Whistleblowers [Vol.1]]]"]
 
 ## tags: #UAPVideos #UFOWhistleblowers #Roswell

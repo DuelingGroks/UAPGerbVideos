@@ -1,5 +1,4 @@
-# 📌 The Alien and UFO Obscure Oddities Iceberg (Level 1)
-
+![[02-The Alien and UFO Obscure Oddities Iceberg (Level 1)-thumbnail.jpg]]
 ## 🎥 Video Details
 
 - **Title:** The Alien and UFO Obscure Oddities Iceberg (Level 1)
@@ -45,84 +44,89 @@ Strange crafts, extraterrestrials, conspiracy theories, and more! Join me as we 
 #UFO #Iceberg #Alien #UAP #Conspiracy #Extraterrestrial #Disclosure
 
 ## Transcript
+
 00;00;00;00 - 00;00;23;02
-Unknown
-What's up guys? It is Gerb. Welcome back to the channel. Join me today as we start a six part series into the alien and UFO obscure oddities iceberg. Posted to Reddit by user Blake sama. Now, for those of you who don't know what an iceberg is, an iceberg is a way of categorizing the most known to least known components of an overall topic or theme.
+Gerb
+What's up guys? It is Gerb. Welcome back to the channel. Join me today as we start a six part series into the alien and UFO obscure oddities iceberg. Posted to Reddit by user [[Blyke-sama]]. Now, for those of you who don't know what an iceberg is, an iceberg is a way of categorizing the most known to least known components of an overall topic or theme.
 
 00;00;23;09 - 00;00;48;04
-Unknown
+Gerb
 So think of an iceberg in real life. How the iceberg you see above the surface is only scratching the surface of the entirety of the iceberg below the waters. So we have six layers to this iceberg. As we start with the first layers, we're going to have some pretty well known subjects stuff you might have heard of. As we get deeper into level five six, we're going to get into more fringe theories and some stuff I might not have heard of.
 
 00;00;48;04 - 00;01;07;19
-Unknown
+Gerb
 So it should be a learning process for all of us. I'd like to disclaim that I did not make this iceberg, so I do not have control over the entries within it. On this channel, I like to keep things as factual as I know them to the UFO UAP phenomena. So if there's something that's rather bogus or absolutely absurd, I'm going to say so.
 
 00;01;07;25 - 00;01;30;09
-Unknown
-And if there's something I strongly agree with, I'm also going to say so. So let's get this started. But before we kick it off, please consider liking and subscribing. I really like making these videos, so the more support I get, the more of an urge I have to make some quality content and some good documentaries. If you haven't seen it yet, check out my first video, the documentary on the Wilson Davis Memo.
+Gerb
+And if there's something I strongly agree with, I'm also going to say so. So let's get this started. But before we kick it off, please consider liking and subscribing. I really like making these videos, so the more support I get, the more of an urge I have to make some quality content and some good documentaries. If you haven't seen it yet, check out my first video, the documentary on the [[Wilson Davis Memo]]. 
+> [!note]
+> **Citation:** see [[01 Wilson_Davis_Memo_Documentary]]
+> 
 
 00;01;30;11 - 00;01;44;22
-Unknown
+Gerb
 It's not bad. It could be better and it will be better. So stick around. Let's get started guys. Layer one. We'll call this the observer layer.
 
 00;01;44;25 - 00;02;17;22
-Unknown
+Gerb
 Extraterrestrial life simply refers to any life that does not originate from Earth, from a single celled organism to a highly advanced civilization that can traverse the stars in a matter of hours or days. These all classify as extraterrestrial life. So not the most challenging concept to understand, but this first entry just boils down to any life carbon or otherwise, silicon that does not originate from Earth.
 
 00;02;17;24 - 00;02;57;01
-Unknown
-Crop circles are a phenomena in which large scale structures are created into a field. Generally a wheat field. These structures are often pretty interesting and beautiful due to their, symmetry or geometric designs, and because of the complexity of the designs. A lot of people like to attribute crop circles to paranormal or extraterrestrial phenomena. Widely considered hoaxes, the craze of crop circles began in 1991, where two pranksters, Doug Bower and Dave Chorley, took credit for making the initial wave of of crop circles with planks of wood, rope and baseball caps.
+Gerb
+Crop circles are a phenomena in which large scale structures are created into a field. Generally a wheat field. These structures are often pretty interesting and beautiful due to their, symmetry or geometric designs, and because of the complexity of the designs. A lot of people like to attribute crop circles to paranormal or extraterrestrial phenomena. Widely considered hoaxes, the craze of crop circles began in 1991, where two pranksters, [[Doug Bower]] and [[Dave Chorley]], took credit for making the initial wave of of crop circles with planks of wood, rope and baseball caps.
 
 00;02;57;04 - 00;03;19;03
-Unknown
+Gerb
 Many of the seemingly bizarre creation tactics of crop circles can be explained away by skeptics, including tying the end of a rope to an anchor point and the other end to a board which is used to crush or flatten plants. There's also a method to bend crops. After a recent rain that was discovered in Hungary in 1992.
 
 00;03;19;06 - 00;03;35;08
-Unknown
+Gerb
 The point is, while crop circles are beautiful and interesting and have wonderful designs, I think it's likely extremely likely. These are human made and in my opinion, not very interesting. So I'm not going to spend more time on it.
 
 00;03;35;10 - 00;04;06;13
-Unknown
-The McMinnville UFO photographs are some of the most famous photographs of a UFO ever taken. On May 11th, 1950, farmers Paul and Evelyn Trent saw something inexplicable near their farmhouse in McMinnville, Oregon. When walking back to her farmhouse, Evelyn noticed a slow moving metallic disc shaped object heading in her direction from the northeast. After getting for her husband, Paul came outside, also seen the object.
+Gerb
+The [[1950 McMinnville UFO photographs|McMinnville UFO photographs]] are some of the most famous photographs of a UFO ever taken. On May 11th, 1950, farmers Paul and Evelyn Trent saw something inexplicable near their farmhouse in McMinnville, Oregon. When walking back to her farmhouse, Evelyn noticed a slow moving metallic disc shaped object heading in her direction from the northeast. After getting for her husband, Paul came outside, also seen the object.
 
 00;04;06;15 - 00;04;34;04
-Unknown
-He grabbed his camera and was able to take two photographs of the metallic disc near his home. Due to the popularity of these photographs, the negatives were loaned to William H. Hartman, an astronomer on the Condon Committee, in 1967. The objective of the Condon Committee outside of the University of Colorado, Boulder was to investigate UFOs, and was a government funded UFO research project.
+Gerb
+He grabbed his camera and was able to take two photographs of the metallic disc near his home. Due to the popularity of these photographs, the negatives were loaned to [[William H. Hartman]], an astronomer on the [[Condon Committee]], in 1967. The objective of the [[Condon Committee]] outside of the University of Colorado, Boulder was to investigate UFOs, and was a government funded UFO research project.
 
 00;04;34;06 - 00;04;55;11
-Unknown
-I'd like to do another video on the Condon Committee, because the program was basically told to explain UFOs away a swamp, gas and weather balloons. But Hartman found some extremely interesting oddities with these photographs. Hartman was impressed with the images, noting that the brightness of the underside of the craft appeared to be lighter than the underside of the oil tank.
+Gerb
+I'd like to do another video on the [[Condon Committee]], because the program was basically told to explain UFOs away a swamp, gas and weather balloons. But Hartman found some extremely interesting oddities with these photographs. Hartman was impressed with the images, noting that the brightness of the underside of the craft appeared to be lighter than the underside of the oil tank.
 
-00;04;55;11 - 00;05;20;08
-Unknown
-Also seen in the images. He said this was possibly due to atmospheric extinction, the same effect that makes distant mountains appear washed out and blue in images. This effect suggested that the object was further from the camera than the tank, not a small local object hanging from a string like some debunkers like to claim. He wrote to the Condon Committee that quote.
+00;04;55;11 - 00;06;02;08
+Gerb
+Also seen in the images. He said this was possibly due to atmospheric extinction, the same effect that makes distant mountains appear washed out and blue in images. This effect suggested that the object was further from the camera than the tank, not a small local object hanging from a string like some debunkers like to claim. He wrote to the [[Condon Committee]] that quote.
 
-00;05;20;14 - 00;05;50;27
-Unknown
-This is one of the few UFO reports in which all factors investigated geometric, psychological, and physical appear to be consistent with the assertion that an extraordinary flying object silvery metallic, disc shaped, tens of meters in diameter and evidently artificial, flew within sight of two witnesses. Perhaps we need some outside universal threat to make us recognize this common bound.
+"This is one of the few UFO reports in which all factors investigated geometric, psychological, and physical appear to be consistent with the assertion that an extraordinary flying object silvery metallic, disc shaped, tens of meters in diameter and evidently artificial, flew within sight of two witnesses." 
 
-00;05;51;00 - 00;06;24;10
-Unknown
-I occasionally think how quickly our differences worldwide would vanish if we were facing an alien threat from outside this world. Alien invasion simply refers to a world wide invasion by an extraterrestrial species. Now, I like to think that, an invasion by an extraterrestrial species is pretty unlikely. It's impossible, of course, to attribute human motives to a non-human intelligence.
+Ronald Regan: "Perhaps we need some outside universal threat to make us recognize this common bound.I occasionally think how quickly our differences worldwide would vanish if we were facing an alien threat from outside this world. ""
 
-00;06;24;13 - 00;06;59;08
-Unknown
-But if extraterrestrials have the ability to traverse the cosmos and warp space time, it seems rather idiotic that such an advanced species would be war mongering like we are. In my opinion, humans would be more interesting to study from a distance. A hairless primate that has recently discovered how to harness nuclear technology and is at the foot of exploring our solar system or destroying ourselves.
+00;06;02;08 - 00;06;24;10
+Gerb
+Alien invasion simply refers to a world wide invasion by an extraterrestrial species. Now, I like to think that, an invasion by an extraterrestrial species is pretty unlikely. It's impossible, of course, to attribute human motives to a non-human intelligence. But if extraterrestrials have the ability to traverse the cosmos and warp space time, it seems rather idiotic that such an advanced species would be war mongering like we are. 
+In my opinion, humans would be more interesting to study from a distance. A hairless primate that has recently discovered how to harness nuclear technology and is at the foot of exploring our solar system or destroying ourselves.
 
 00;06;59;10 - 00;07;29;01
-Unknown
-It's a pretty interesting place in which our species is residing. Perhaps this is something like the Great Filter that the Fermi Paradox talks about, but alien invasion? Scary but likely, in my opinion. No. Panspermia is a theory that life exists throughout the entirety of the universe in microbial or cellular form, and is distributed by space dust, meteors, asteroid comets, and planetoids.
+Gerb
+It's a pretty interesting place in which our species is residing. Perhaps this is something like the Great Filter that the Fermi Paradox talks about, but alien invasion? Scary but likely, in my opinion. No. 
+### Panspermia
+Panspermia is a theory that life exists throughout the entirety of the universe in microbial or cellular form, and is distributed by space dust, meteors, asteroid comets, and planetoids.
 
 00;07;29;03 - 00;08;05;20
-Unknown
-Let's tackle this with an example. One possible origin of life here on Earth is a result of panspermia. Millions and millions of years ago, Mars had life. Whether this was single, cellular or multicellular, we don't know. But if panspermia occurred, that means an asteroid or a meteor or something. Large impact on Mars surface. This kicked up much Martian soil and dust contained microbes that dust and particles then made their way over to Earth, where the seeds of life were carried from one planet to another.
+Gerb
+Let's tackle this with an example. One possible origin of life here on Earth is a result of panspermia. Millions and millions of years ago, Mars had life. Whether this was single, cellular or multicellular, we don't know. But if panspermia occurred, that means an asteroid or a meteor or something. Large impact on Mars' surface. This kicked up much Martian soil and dust contained microbes that dust and particles then made their way over to Earth, where the seeds of life were carried from one planet to another.
 
 00;08;05;22 - 00;08;36;00
-Unknown
-There are three types of panspermia lethal panspermia, which means life being carried from one solar system to another. Ballistic panspermia, which is life carried from one planet to another within the same solar system, and directed panspermia. This would be humans sending life to other planets, essentially, the Men in Black are a shadowy organization featured prominently in ufology and UFO folklore.
+Gerb
+There are three types of panspermia lithopanspermia, which means life being carried from one solar system to another. Ballistic panspermia, which is life carried from one planet to another within the same solar system, and directed panspermia. This would be humans sending life to other planets, essentially. 
+### Men In Black
+The Men in Black are a shadowy organization featured prominently in ufology and UFO folklore.
 
 00;08;36;03 - 00;09;06;17
-Unknown
+Gerb
 Essentially, the Men in Black are suit clad government agents who are used to question, interrogate, threaten, harass, and sometimes a assassinate. Experiencers of UFOs and extraterrestrials. The legend of the Men in Black can be traced back to June 27th, 1947. Harold Dahl was on a conservation mission on the Puget Sound near the eastern shore of Washington's Maori island.
 
 00;09;06;19 - 00;09;30;23

@@ -1,3 +1,4 @@
+![[31-The 1965 Kecksburg, Pennsylvania UFO Crash-thumbnail.jpg]]
 ## aliases: ["Video 31: The 1965 Kecksburg, Pennsylvania UFO Crash"]
 
 ## tags: #UAPVideos #UFOCrashes #KecksburgIncident

@@ -2,6 +2,7 @@
 
 ## aliases: ["Video 18: [[The Physics of UFOs – Dr. Kevin Knuth]]"]
 ---
+![[18-The Physics of UFOs– Dr. Kevin Knuth-thumbnail.jpg]]
 ## tags: #UAPVideos #UFOPhysics #KevinKnuth
 
 **Video Published:** 2024-03-10  

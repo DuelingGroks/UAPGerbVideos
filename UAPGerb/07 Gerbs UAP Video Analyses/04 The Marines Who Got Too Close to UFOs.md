@@ -1,4 +1,4 @@
-
+![[04-The Marines Who Got too Close to UFOs-thumbnail.jpg]]
 ## 🎥 Video Details
 
 - **Title:** The Marines Who Got Too Close to UFOs

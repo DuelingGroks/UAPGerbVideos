@@ -1,3 +1,4 @@
+![[11-The Origin of the UFO Stigma-thumbnail.jpg]]
 **Date Published:** February 9, 2024  
 **Researcher/Host:** UAP Gerb
 

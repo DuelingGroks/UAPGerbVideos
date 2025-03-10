@@ -1,4 +1,4 @@
-
+![[19-The 1933 Magenta, Italy UFO Crash-thumbnail.jpg]]
 ## aliases: ["Video 19: [[The 1933 Magenta, Italy UFO Crash]]"]
 
 ## tags: #UAPVideos #UFOCrashes #MagentaUFO

@@ -1,3 +1,4 @@
+![[15-UFOs in the Private Sector - Lockheed Martin-thumbnail.jpg]]
 ## title: UFOs in the Private Sector - Lockheed Martin date: 2024-02-22 tags: [[UAP]], [[Lockheed Martin]], [[Reverse Engineering]], [[TR-3B]], [[Project Aurora]], [[Private Sector]]
 
 # UFOs in the Private Sector - Lockheed Martin

@@ -1,3 +1,4 @@
+![[27-US Special Forces Confession - I Recovered Crashed UFOs Fact or Fiction-thumbnail.jpg]]
 ## aliases: ["Video 27: US Special Forces Confession - I Recovered Crashed UFOs - Fact or Fiction"]
 
 ## tags: #UAPVideos #UFOCrashes #WhistleblowerTestimonies

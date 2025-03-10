@@ -1,4 +1,4 @@
-
+![[09-Global Air Force UFO Encounters You've Probably Never Heard of-thumbnail.jpg]]
 ## 📌 Overview
 
 Published in **February, 1 2024**, this documentary by **UAP Gerb** covers **four lesser-known UFO encounters** involving Air Force pilots worldwide. These cases provide fascinating insights into **military aviation and unidentified aerial phenomena (UAP)**, often overshadowed by the well-known **Gimbal, Go Fast, and Tic Tac** encounters.

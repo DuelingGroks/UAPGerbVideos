@@ -1,3 +1,4 @@
+![[32-UAP Reverse Engineering at Edwards Air Force Base [Redacted List Vol.2]-thumbnail.jpg]]
 ## aliases: ["Video 32: UAP Reverse Engineering at Edwards Air Force Base [Redacted List Vol.2]"]
 
 ## tags: #UAPVideos #ReverseEngineering #BlackPrograms #EdwardsAFB

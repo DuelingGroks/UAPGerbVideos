@@ -1,4 +1,4 @@
-
+![[20-Michael Herrera UFO Whistleblower (ft. Joeyisnotmyname)-thumbnail.jpg]]
 ## aliases: ["Video 20: [[Michael Herrera UFO Whistleblower]]"]
 
 ## tags: #UAPVideos #UFOWhistleblower #MichaelHerrera

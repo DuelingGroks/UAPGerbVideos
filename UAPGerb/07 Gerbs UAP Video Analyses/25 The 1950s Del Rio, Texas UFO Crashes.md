@@ -1,3 +1,4 @@
+![[25-The 1950s Del Rio, Texas UFO Crashes-thumbnail.jpg]]
 ## aliases: ["Video 25: [[The 1950s Del Rio, Texas UFO Crashes]]"]
 
 ## tags: #UAPVideos #UFOCrashes #DelRio #MJ12

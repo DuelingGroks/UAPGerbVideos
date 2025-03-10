@@ -1,3 +1,4 @@
+![[35-Philip J. Corso - US Army UFO Technology Research & Development-thumbnail.jpg]]
 ## aliases: ["Video 35: Philip J. Corso - US Army UFO Technology Research & Development"]
 
 ## tags: #UAPVideos #ReverseEngineering #PhilipCorso #BlackPrograms #Roswell

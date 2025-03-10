@@ -2,7 +2,7 @@
 aliases: ["Video 13: Karl Nell - SOL Foundation", "Karl Nell UAP Disclosure", "Controlled Disclosure Schumer Amendment"]
 tags: ["#UAPVideos", "#SOLFoundation", "#Disclosure", "#Whistleblower", "#NHI"]
 ---
-
+![[13-SOL Foundation Karl Nell - A Key Figure in UAP Disclosure-thumbnail.jpg]]
 **Video Published:** February 14, 2024  
 **Video Link:** [YouTube – Karl Nell SOL Foundation](https://www.youtube.com/watch?v=kKbSIfc7N7Q)  
 **Approx. Length:** ~21–22 minutes  
