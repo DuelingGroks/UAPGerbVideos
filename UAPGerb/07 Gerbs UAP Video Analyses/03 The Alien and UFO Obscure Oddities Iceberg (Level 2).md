@@ -128,82 +128,110 @@ The purpose of the Dyson sphere is to entirely encompass a host civilization sta
 
 00;08;40;01 - 00;09;14;18
 Gerb
-Now, the feasibility of creating a Dyson sphere currently is not necessarily possible with our current engineering capabilities. But interestingly, one feasible way to create one of these megastructures is to utilize von Neumann self-replicating probes that would be able to harness precious metals and materials from the asteroid belt and from various meteors and various moons, and be able to self replicate and create this sphere without any direct human hands in the cosmos.
+Now, the feasibility of creating a Dyson sphere currently is not necessarily possible with our current engineering capabilities. But interestingly, one feasible way to create one of these megastructures is to utilize [[Von Neumann]] self-replicating probes that would be able to harness precious metals and materials from the asteroid belt and from various meteors and various moons, and be able to self replicate and create this sphere without any direct human hands in the cosmos.
 
 00;09;14;20 - 00;09;43;13
-Unknown
-The Vaughan A's UFO incident is a famous UFO sighting, an extraterrestrial encounter that occurred in the Soviet Union on September 27th, 1989. Now, I'd actually never heard of this incident, so this has been pretty interesting to read up on. Essentially, what occurred here is a group of boys playing football in a city park, saw a pink glowing object in the sky, followed by a deep red ball about three meters in diameter.
+Gerb
+
+### [[1989 Voronezh UFO Incident]]
+The Voronezh UFO incident is a famous UFO sighting, an extraterrestrial encounter that occurred in the Soviet Union on September 27th, 1989. Now, I'd actually never heard of this incident, so this has been pretty interesting to read up on. Essentially, what occurred here is a group of boys playing football in a city park, saw a pink glowing object in the sky, followed by a deep red ball about three meters in diameter.
 
 00;09;43;15 - 00;10;14;19
-Unknown
-The balls circled the football pitch, vanished, and reappeared minutes later, hovering. The children then claimed to have seen a three eyed alien wearing bronze colored boots with a disc on its chest, about ten feet tall. And I'd like to stress the head was rather smushed onto the shoulders. Exit the object along with a robot. It was thought that the children were the only ones claiming to have witnessed the craft an alien.
+Gerb
+The balls circled the football pitch, vanished, and reappeared minutes later, hovering. The children then claimed to have seen a quote "three eyed alien" wearing bronze colored boots with a disc on its chest, about ten feet tall. And I'd like to stress the head was rather smushed onto the shoulders. Exit the object along with a robot. 
+It was thought that the children were the only ones claiming to have witnessed the craft an alien.
 
 00;10;14;21 - 00;10;41;02
-Unknown
-But Lieutenant Sergeant Sergei Matviyenko, I'm sorry if I butchered that of the police district. Claim to have seen a, quote flying body in the sky, end quote. Now, it's also worth mentioning that this supposed ten foot tall, strange looking E.T. utilized some sort of firearm to make a 16 year old boy disappear before exiting the area and departing in its craft.
+Gerb
+But Lieutenant Sergeant [[Sergei A. Matviyenko]], I'm sorry if I butchered that of the police district. Claim to have seen a, quote "flying body in the sky", end quote. 
+
+Now, it's also worth mentioning that this supposed ten foot tall, strange looking E.T. utilized some sort of firearm to make a 16 year old boy disappear before exiting the area and departing in its craft.
 
 00;10;41;05 - 00;11;15;16
-Unknown
-Now, the Soviet media Tass went crazy for this incident, reporting on it all across the country. I would like to add a scene as this, event occurred in 1989. This was during Gorbachev's tenure as the leader of the Soviet Union. So his move to a more free market economy allowed for a more freedom of press. So you got to think that possibly because the press was finally able to comment and report on things that weren't directly mandated by the Soviet Union, they might have gone a little tabloid with this story.
+Gerb
+Now, the Soviet media TASS went crazy for this incident, reporting on it all across the country. I would like to add a seen as this, event occurred in 1989. This was during Gorbachev's tenure as the leader of the Soviet Union. So his move to a more free market economy allowed for a more freedom of press. So you got to think that possibly because the press was finally able to comment and report on things that weren't directly mandated by the Soviet Union, they might have gone a little tabloidey with this story.
 
 00;11;15;18 - 00;11;41;09
-Unknown
-But anyways, the Soviets Scientific Commission ordered an official inquiry into the incident. They were not able to find any concrete proof of a craft landing, although radioactive cesium was found in the region, there was not enough to indicate a craft landing. And upon checking for microorganisms and spectral chemical measurements, nothing abnormal was uncovered. So I don't know what happened.
+Gerb
+But anyways, the Soviet's Scientific Commission ordered an official inquiry into the incident. They were not able to find any concrete proof of a craft landing, although radioactive cesium was found in the region, there was not enough to indicate a craft landing. And upon checking for microorganisms and spectral chemical measurements, nothing abnormal was uncovered. So I don't know what happened.
 
 00;11;41;10 - 00;12;22;10
-Unknown
-It's an interesting looking it, but I'm not quite sure if I believe the validity of this case. J Allen Hynek. Fantastic entry. And this is the man featured in the overview of this iceberg tier. Jay Allen Hynek was the scientific advisor to Project Bluebook, the United States government's official investigation into UAP from 1952 to 1969. This was the most well known USG, USAF, UAP investigation study and Bluebook was founded to determine if UFOs were a national security threat and to scientifically analyze UFO data.
+Gerb
+It's an interesting looking ET, but I'm not quite sure if I believe the validity of this case.
+
+### J. Allen Hynek
+[[J. Allen Hynek]]. Fantastic entry. And this is the man featured in the overview of this iceberg tier. 
+
+[[J. Allen Hynek]] was the scientific advisor to [[Project Bluebook]], the United States government's official investigation into UAP from 1952 to 1969. This was the most well known USG, USAF, UAP investigation study and Bluebook was founded to determine if UFOs were a national security threat and to scientifically analyze UFO data.
 
 00;12;22;12 - 00;12;52;12
-Unknown
-It's worth mentioning that during its tenure from 52 to 69, 12,618 UFO reports were analyzed, 701 of which were classified as unexplained after extensive analysis. Bluebook is a bit controversial due to the Robertson Panel that occurred in 1953, which was used to strip UFOs of their special status and suggest that no legitimate evidence of their existence was available.
+Gerb
+It's worth mentioning that during its tenure from 52 to 69, 12,618 UFO reports were analyzed, 701 of which were classified as unexplained after extensive analysis. 
+
+Bluebook is a bit controversial due to the [[Robertson Panel]] that occurred in 1953, which was used to strip UFOs of their special status and suggest that no legitimate evidence of their existence was available.
 
 00;12;52;14 - 00;13;22;27
-Unknown
-Think of the swamp gas and weather balloon explanation and stigma around UFOs. A lot of this came from Project Bluebook, not to mention the Condon Report that we mentioned in the first video that essentially did the same thing as the Robertson panel. All this occurred during Blue Book's tenure. Now back to Hynek. In May of 1972, Hynek wrote a book and claimed that Bluebook was, quote, a cover up and that the UFO issue was, quote, glossed over.
+Gerb
+Think of the swamp gas and weather balloon explanation and stigma around UFOs. A lot of this came from [[Project Bluebook]], not to mention the [[Condon Report]] that we mentioned in the first video that essentially did the same thing as the [[Robertson Panel]]. All this occurred during Blue Book's tenure. Now back to Hynek. 
+
+In May of 1972, Hynek wrote a book and claimed that Bluebook was, quote, a cover up and that the UFO issue was, quote, "glossed over."
 
 00;13;23;00 - 00;13;51;13
-Unknown
-He says that Bluebook was a front for a more classified investigation group, possibly something called FOIA, and X SG, and was told to drop certain cases and, quote, not to pursue the matter further. End quote. In 1979, Hynek stated that the CIA's Robertson Panel was concerned on public reaction to UFOs. They were quote handed down the unwritten law of the Air Force.
+Gerb
+He says that Bluebook was a front for a more classified investigation group, possibly something called [[AFOIN-X SG]], and was told to drop certain cases and, quote, "not to pursue the matter further." End quote. 
+
+In 1979, Hynek stated that the CIA's [[Robertson Panel]] was concerned on public reaction to UFOs. They were quote handed down the unwritten law of the Air Force.
 
 00;13;51;14 - 00;14;24;02
-Unknown
-Don't rock the boat. Play with it. Cool it. Don't get the public excited. Hynek stated that Yusuf purposefully debunked interesting cases as balloons or planets. Just think about the Japan Cargo Airlines incident. Hynek would also go on to comment on the Condon Report, saying that the committee ignored key evidence. What's really crazy is on the 13th of April, 1975, Hynek was told by Donald Rumsfeld at the white House that he did not have a need to know if there was a secret UAP study somewhere.
+Gerb
+Don't rock the boat. Play with it. Cool it. Don't get the public excited. 
+
+Hynek stated that Yusuf purposefully debunked interesting cases as balloons or planets. Just think about the [[1986 Japan Airlines Cargo Flight 1628 Incident|Japan Cargo Airlines incident]]. Hynek would also go on to comment on the [[Condon Report]], saying that the committee ignored key evidence. 
+
+What's really crazy is on the 13th of April, 1975, Hynek was told by [[Donald Rumsfeld]] at the white House that he did not have a need to know if there was a secret UAP study somewhere After Bluebook.
 
 00;14;24;02 - 00;14;56;10
-Unknown
-After Bluebook. Hynek would be extremely outspoken about the USGS official UAP investigation, even commenting on 1949 Project Grudge. One of the predecessors to Blue Book, saying that grudge was, quote, less scientific and more of a public relations campaign, end quote. Hynek is one of the OG whistleblowers, and I have nothing but respect for this man. I have a lot more to say about him, but these are just a few of his outspoken comments.
+Gerb
+Hynek would be extremely outspoken about the USGS official UAP investigation, even commenting on 1949 [[Project Grudge]]. One of the predecessors to Blue Book, saying that grudge was, quote, "less scientific and more of a public relations campaign", end quote. Hynek is one of the OG whistleblowers, and I have nothing but respect for this man. Um, I have a lot more to say about him, but these are just a few of his outspoken comments.
 
 00;14;56;12 - 00;15;27;08
 Unknown
-UFOs over Slovenia. Now, I apologize in advance. I was not really able to find anything on this subject. Besides a 1970s crop circle sighting, in a village in Slovenia, or some Reddit post from around summer of 2023 of some really grainy photographs of supposedly UAP. So I'm just going to skip this entry. I really don't know what to cover here, but maybe Slovenia is a UFO hotspot?
+### UFOs Over Slovenia
+UFOs over Slovenia. Now, I apologize in advance. I was not really able to find anything on this subject. Besides a 1970s crop circle sighting, in a village in Slovenia, or some Reddit posts from around summer of 2023 of some really grainy photographs of supposedly UAP. So I'm just going to skip this entry. I really don't know what to cover here, but maybe Slovenia is a UFO hotspot I don't know. 
 
 00;15;27;09 - 00;15;57;18
-Unknown
-I don't know. The combi in ancient airplanes. I'm just going to be straight up with you guys. I don't like this entry, but I will entertain it nonetheless. The combine artifacts are several dozen gold figurines found in Colombia, made by the Qin by a culture dated to around 1000 C.E. a few of these figurines, which depict birds, fish, bugs, all of this are shaped like an airplane.
+Gerb
+### Quimbaya Ancient Airplanes
+The Quimbaya Ancient Airplanes. I'm just going to be straight up with you guys. I don't like this entry, but I will entertain it nonetheless. The Quimbaya artifacts are several dozen gold figurines found in Colombia, made by the Quimbaya culture. Dated to around 1000 C.E.. A few of these figurines, which depict birds, fish, bugs, all of this are shaped like an airplane.
 
 00;15;57;20 - 00;16;27;03
-Unknown
-It is likely an owl or a bird, but these supposed depictions of airplanes are used by ancient astronaut theorists. I wouldn't be surprised of ancient aliens covered this to say that some sort of extraterrestrial race that flew 747 jumbo jets was visiting this culture. That's all I'm going to say on this. I think these artifacts are just trinkets that are being misconstrued for something grand.
+Gerb
+It is likely an owl or a bird, but these supposed depictions of airplanes are used by ancient astronaut theorists. I wouldn't be surprised of ancient aliens covered this, to say that some sort of extraterrestrial race that flew 747 jumbo jets was visiting this culture. That's all I'm going to say on this. I think these artifacts are just trinkets that are being misconstrued for something grand.
 
 00;16;27;05 - 00;17;00;20
 Unknown
+### Mystery Airships
 Mystery airships was a craze that occurred in 1896 to 1897, where thousands of reports occurred of people seen mysterious airships or airship style UAPs. Some reports claimed to see the crewmen of these airships describing them as human looking. At the time, it was popularly believed that these mysterious airships were the product of some inventor or genius who was not yet ready to show his invention to the world.
 
 00;17;00;23 - 00;17;35;25
-Unknown
-Now, while there were no records of sustained or long range airship flights at this time, it is not impossible that these were just in fact, prototype airships from some inventor. In fact, there were several successful manufactured airships from before this period, including Solomon Andrews successful test flights of his Orion airship in 1863. But remember, the capabilities were extremely limited to what observers saw and claimed to see in the sky.
+Gerb
+Now, while there were no records of sustained or long range airship flights at this time, it is not impossible that these were just in fact, prototype airships from some inventor. 
+
+In fact, there were several successful manufactured airships from before this period, including Solomon Andrews successful test flights of his Orion airship in 1863. But remember, the capabilities were extremely limited to what observers saw and claimed to see in the sky.
 
 00;17;35;27 - 00;18;21;12
-Unknown
+Gerb
 But most of these sightings were explained away as hoaxes or misidentification of celestial phenomena. As you'd expect. So just because this craze occurred so long ago, it's difficult to find any recorded evidence of these airships. So whether this was some inventor or a series of hoaxes, I'm not quite sure, or whether this has some more esoteric explanation, such as the UFO phenomena expressing itself to what people would understand as technology at the time, as some sort of airship type things that evolved into saucer shaped craft and cigar shaped craft.
 
 00;18;21;14 - 00;18;56;27
-Unknown
-I don't know. I'm leaning towards just a mixture of hoaxes and just the exploration of airship technology at the time by inventors. So that's where I'm at. The Aurora, Texas UFO incident is the first alleged UFO crash retrieval that I'm aware of. Okay, so our story takes place on April 17th, 1897, where, according to locals, a UFO crashed on a farm near Aurora, Texas bashing into a windmill.
+Gerb
+I don't know. I'm leaning towards just a mixture of hoaxes and just the exploration of airship technology at the time by inventors. So that's where I'm at. 
+
+### The Aurora Texas UFO Incident
+The [[1897 Aurora Texas UFO incident]] is the first alleged UFO crash retrieval that I'm aware of. Okay, so our story takes place on April 17th, 1897, where, according to locals, a UFO crashed on a farm near Aurora, Texas bashing into a windmill.
 
 00;18;56;29 - 00;19;33;29
-Unknown
+Gerb
 According to The Dallas Morning News, on April 19th, 1897, the craft was piloted by one sole inhabitant who was deceased with his remains badly disfigured. But the paper still says, quote, he was not an inhabitant of this world. According to the same article in the paper, the ship was too badly wrecked to form any conclusion on its construction or how it was powered, but it does say the craft was built of an unknown mixture of metal resembling aluminum and silver, and must have weighed several tons.
 
 00;19;34;02 - 00;20;06;02
