@@ -44,7 +44,7 @@ Finally, we connect Fastwalker research to the [[Aerospace Corporation]], an org
 - Classified UAP detection by DSP satellites.
 - Object moving 22,000 mph altered course before leaving Earth's atmosphere.
 
-### **[[1976 Tehran UFO Incident]] & DSP**
+### **[[1976 Tehran UFO incident]] & DSP**
 - UAP tracked by DSP satellites during the famous Iranian Air Force encounter.
 - **Lee Graham & Roger Rager** uncovered DSP satellite records confirming the event.
 
