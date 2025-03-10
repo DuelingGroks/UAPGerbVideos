@@ -195,193 +195,219 @@ Red lights then began to telescope out of the sides of the craft, and a long str
 
 00;15;42;21 - 00;16;20;26
 Gerb
-Within these dreams, she was escorted by small humanoids 5 to 5ft four inches tall, with Barney walking behind her. She recalls after being walked with the humanoids being set back by her car, where the leader suggests they wait for the craft's departure. The Hills then sought hypnosis to explain their missing time after their encounter. Seeing as their 178 mile drive home from their vacation should have taken about four hours, but their drive took seven, meaning there were three hours of missing time where they could not explain what happened.
+Within these dreams, she was escorted by small humanoids 5 to 5ft four inches tall, with Barney walking behind her. She recalls after being walked with the humanoids being set back by her car, where the leader suggests they wait for the craft's departure. 
+The Hills then sought hypnosis to explain their missing time after their encounter. Seeing as their 178 mile drive home from their vacation should have taken about four hours, but their drive took seven, meaning there were three hours of missing time where they could not explain what happened.
 
 00;16;20;28 - 00;16;47;26
-Unknown
+Gerb
 Barney's first session of hypnosis is extremely disturbing. He recalls running from the UFO back to his car. He recalls driving away from the UFO, but felt an irresistible urge to pull off the road and drive into the woods. Upon doing so, he sighted six figure standing on the dirt road. He described these figures very similar to what occurred in Betty's dreams.
 
-00;16;47;28 - 00;17;11;25
-Unknown
-Barney said the being stared into his eyes with a terrifying effect. Barney said, quote, oh, those eyes. They're in my brain. And I was told to close my eyes because I saw two eyes coming close to mind, and I felt like the eyes had pushed into my eyes. End quote. And finally, quote. All I see are these eyes.
+00;16;47;28 - 00;17;38;12
+Gerb
+Barney said the being stared into his eyes with a terrifying effect. Barney said, quote, "oh, those eyes. They're in my brain." 
+And quote, "I was told to close my eyes because I saw two eyes coming close to mind, and I felt like the eyes had pushed into my eyes." End quote. 
+And finally, quote. "All I see are these eyes. I'm not even afraid that they're not connected to a body. They're just there. They're just up close to me. Pressing against my eyes" end quote. 
 
-00;17;11;27 - 00;17;38;12
-Unknown
-I'm not even afraid that they're not connected to a body. They're just there. They're just up close to me. Pressing against my eyes and quote. Betty's recollections from hypnosis were remarkably similar to Barney's. In her hypnosis sessions, she recalls being aboard the craft, talking about the technology she saw, and a star map she observed within what she guessed was the craft's control room.
+Betty's recollections from hypnosis were remarkably similar to Barney's. In her hypnosis sessions, she recalls being aboard the craft, talking about the technology she saw, and a star map she observed within what she guessed was the craft's control room.
 
 00;17;38;14 - 00;18;08;25
-Unknown
-Now, this star map is pretty controversial, as some interpretations show it bearing soul, our sun, as well as the creatures coming from the Zeta reticulum system. And there has been a back and forth into this star map's authenticity, including a rebuttal by Carl Sagan in the 1980s cosmos. But even members on the Condon UFO report, as mentioned earlier, said the odds of this being a random configuration of stars were, quote, at least 1000 to 1 against end quote.
+Gerb
+Now, this star map is pretty controversial, as some interpretations show it bearing soul, our sun, as well as the creatures coming from the [[Zeta reticulum system]]. And there has been a back and forth into this star map's authenticity, including a rebuttal by Carl Sagan in the 1980s cosmos. But even members on the [[Condon UFO report]], as mentioned earlier, said the odds of this being a random configuration of stars were, quote, at least 1000 to 1 against end quote.
 
 00;18;08;27 - 00;18;35;25
-Unknown
-There's a lot more to the Betty and Barney Hill incident, a lot more to study and a lot more to talk about. I can't give it justice in this couple minutes segment, but that's a brief overview. Raleigh ism is a UFO religion dating back to the 70s in France, founded by Claude Varian. The religion teaches that an extraterrestrial species known as the Elohim created humanity using their advanced technology.
+Gerb
+There's a lot more to the Betty and Barney Hill incident, a lot more to study and a lot more to talk about. I can't give it justice in this couple minutes segment, but that's a brief overview. 
+
+### Raelism
+[[Raelism]] is a UFO religion dating back to the 70s in France, founded by [[Claude Varian]]. The religion teaches that an extraterrestrial species known as the Elohim created humanity using their advanced technology.
 
 00;18;35;27 - 00;19;10;03
-Unknown
+Gerb
 Now, key historical and religious figures such as Buddha, Jesus, and Mohammed have been mistaken for gods throughout history, even though they were just Elohim, the Elohim created 40 human Elohim hybrids who have served as prophets throughout the history of humanity. The religion believes that since the bombing of Hiroshima in 1945, humanity has entered an age of apocalypse and will destroy itself with nuclear annihilation unless it finds a way to peacefully harness these technological developments.
 
 00;19;10;05 - 00;19;33;07
-Unknown
-Because of this upcoming apocalypse, the Raleigh Ants have sought to build an embassy for the Elohim that incorporates a landing pad for their spaceship. This religion slash cult isn't harming anybody, so it's kind of fun to read about. And it's not as dangerous as some other UFO death cult. So yeah, a fun little read.
+Gerb
+Because of this upcoming apocalypse, the Raeliants have sought to build an embassy for the Elohim that incorporates a landing pad for their spaceship. This religion slash cult isn't harming anybody, so it's kind of fun to read about. And it's not as dangerous as some other UFO death cults. So yeah, a fun little read.
 
+### Kardishev
 00;19;33;09 - 00;20;04;13
-Unknown
-The Kardashev Scale is a fascinating method of measuring a civilization's level of technological advancement based on the amount of energy the civilization is capable of harnessing. The Kardashev scale was first proposed by Soviet astronomer Nikolai Kardashev in 1964. There are traditionally three types of Kardashev civilizations. Type one. A planetary civilization is able to harness all available energy from their planetary system.
+Gerb
+The [[Kardishev Scale]] is a fascinating method of measuring a civilization's level of technological advancement based on the amount of energy the civilization is capable of harnessing. The Kardashev scale was first proposed by Soviet astronomer [[Nikolai Kardishev]] in 1964. There are traditionally three types of Kardashev civilizations. Type one, A planetary civilization is able to harness all available energy from their planetary system.
 
 00;20;04;15 - 00;20;32;23
-Unknown
-This gives the civilization control over the entire planet's natural forces, including weather and other various phenomena. A type two is a stellar civilization, a civilization that is able to harness all available energy from their host star. This is done through hypothetical methods such as a Dyson sphere, which we'll touch on later, and the type two civilization is able to occupy other planets and other moons within their system.
+Gerb
+This gives the civilization control over the entire planet's natural forces, including weather and other various phenomena. A type two is a stellar civilization, a civilization that is able to harness all available energy from their host star. This is done through hypothetical methods such as a [[Dyson sphere]], which we'll touch on later, and the type two civilization is able to occupy other planets and other moons within their system.
 
 00;20;32;25 - 00;21;04;10
-Unknown
+Gerb
 Finally, a type three civilization is known as a galactic civilization. A galactic civilization is able to control energy on the scale of their entire host galaxy. Type three civilizations are able to travel across stars to stars and colonize their entire home galaxy. Now, the Kardashev scale increases to a Kardashev four and a Kardashev five, in which a civilization is able to control the total energy output of a galactic cluster.
 
 00;21;04;13 - 00;21;44;09
-Unknown
-And a type five, where the civilization can control the energy output of an entire universe. But we don't know if that's theoretically possible. You may ask yourself, where does Earth and humans fall on the Kardashev scale? We are currently about 8.7 rating on the Kardashev scale. The Phoenix Lights refers to a mass UFO sighting in a boomerang or V formation over Phoenix, Arizona in March 13th, 1997, and persists as one of the largest and most perplexing mass sightings of a UFO in US history.
+Gerb
+And a type five, where the civilization can control the energy output of an entire universe. But we don't know if that's theoretically possible. You may ask yourself, where does Earth and humans fall on the Kardashev scale? We are currently about a .7 rating on the Kardashev scale. 
 
-00;21;44;11 - 00;22;12;04
-Unknown
-The sightings of hundreds of people are often explained away by the official narrative that these sightings was due to flares and flying formations of A-10 Thunderbolt two aircrafts. But the governor of Arizona himself, Fyfe Symon, observed the event and attempted to make an official inquiry but was denied. He's quoted as saying, quote, I'm a pilot and I know just about every machine that flies.
+### Phoenix Lights
+The [[1997 Phoenix Lights|Phoenix Lights]] refers to a mass UFO sighting in a boomerang or V formation over Phoenix, Arizona in March 13th, 1997, and persists as one of the largest and most perplexing mass sightings of a UFO in US history.
 
-00;22;12;07 - 00;22;40;12
-Unknown
-It was bigger than anything I've ever seen. It remains a great mystery. Other people saw it. Responsible people. In 2017, Symington also wrote an editorial piece for CNN, which he further discussed his experience with the Phoenix Lights. He said he observed a large delta shaped craft which moved silently in the sky. He said it was dramatically large, with, quote, very distinctive leading edge with some enormous lights and quote.
+00;21;44;11 - 00;22;40;12
+Gerb
+The sightings of hundreds of people are often explained away by the official narrative that these sightings was due to flares and flying formations of A-10 Thunderbolt two aircrafts. But the governor of Arizona himself, [[Fife Symington]], observed the event and attempted to make an official inquiry but was denied. He's quoted as saying, quote, "I'm a pilot and I know just about every machine that flies. It was bigger than anything I've ever seen. It remains a great mystery. Other people saw it. Responsible people."
+In 2017, Symington also wrote an editorial piece for CNN, which he further discussed his experience with the Phoenix Lights. He said he observed a large delta shaped craft which moved silently in the sky. He said it was dramatically large, with, quote, "very distinctive leading edge with some enormous lights" end quote.
 
 00;22;40;15 - 00;23;10;17
-Unknown
-He expressed his dissatisfaction in the Air Force's official explanation of test flares and claimed he did in fact see a large craft. The truth here I'm not sure the flare explanation can be valid for some sightings, such as Jeremy Corbell, Paul in the spring, UFO footage in 2023. But due to the witness testimony of hundreds of people, including the governor of Arizona himself, I'm not sure we can rule out the possibility.
+Gerb
+He expressed his dissatisfaction in the Air Force's official explanation of test flares and claimed he did in fact see a large craft. The truth here I'm not sure the flare explanation can be valid for some sightings, such as [[Jeremy Corbell]]'s, Palm Spring, UFO footage in 2023. But due to the witness testimony of hundreds of people, including the governor of Arizona himself, I'm not sure we can rule out the possibility.
 
 00;23;10;17 - 00;23;46;09
-Unknown
-A strange and anomalous craft flew over the city of Phoenix, Arizona. The Battle of Los Angeles is a famous event that occurred in the city of Los Angeles, California, in late February. The 24th of 1942. Fresh off of the attack on Pearl Harbor, an entry into World War II to the US as war nerves were at a relative all time high, expecting any time an attack from Japan on the western coast over a number of hours, multiple radar signatures were detected, sending the local military into a scramble.
+Gerb
+A strange and anomalous craft flew over the city of Phoenix, Arizona. 
+
+### Battle of Los Angeles
+The [[1942 Battle of Los Angeles|Battle of Los Angeles]] is a famous event that occurred in the city of Los Angeles, California, in late February. The 24th of 1942. Fresh off of the attack on Pearl Harbor, an entry into World War II to the US as war nerves were at a relative all time high, expecting any time an attack from Japan on the western coast. Over a number of hours, multiple radar signatures were detected, sending the local military into a scramble.
 
 00;23;46;11 - 00;24;16;03
-Unknown
-An impending threat of attack by the Japanese was expected, prompting an aerial bombardment. One quote from the scene says, quote, the air erupted like a volcano. End quote. Five civilians died in the aerial bombardment three from car accidents, two from heart attacks. But later on, it was determined that the reasoning behind the aerial bombardment was war nerves or a meteorological balloon.
+Gerb
+An impending threat of attack by the Japanese was expected, prompting an aerial bombardment. One quote from the scene says, quote, "the air erupted like a volcano." End quote. Five civilians died in the aerial bombardment three from car accidents, two from heart attacks. But later on, it was determined that the reasoning behind the aerial bombardment was war nerves or a meteorological balloon.
 
 00;24;16;05 - 00;24;44;09
-Unknown
+Gerb
 A photo was then published in the LA Times on February 26th of 1942. The photo shows searchlights focused on what looks to be a saucer type spacecraft. However, it's controversial that this photo may have been altered, heavily altered, and thus might not be an actual representation of what exactly the searchlights and artillery cannons were shooting at. But this is an interesting story.
 
 00;24;44;11 - 00;25;11;21
-Unknown
-The Battle of Los Angeles was actually one of the cases that got me into the study of UFOs as a young kid. Nowadays, I don't think it's that interesting. I think that there's probably a likely prosaic explanation here, but I have a lot of nostalgia for this case, but interesting nonetheless. The reptilian theory is a conspiracy theory that was proposed by David Eick.
+Gerb
+The [[1942 Battle of Los Angeles|Battle of Los Angeles]] was actually one of the cases that got me into the study of UFOs as a young kid. Nowadays, I don't think it's that interesting. I think that there's probably a likely prosaic explanation here, but I have a lot of nostalgia for this case, but interesting nonetheless. 
+
+### Reptilians
+The reptilian theory is a conspiracy theory that was proposed by [[David Icke]].
 
 00;25;11;23 - 00;25;46;08
-Unknown
-Essentially, the reptilian theory talks of a shapeshifting reptilian race of aliens that is evil and slowly taking control of Earth by taking on human form and gaining political or social power to manipulate human entities. First introduced in 1999, in Ike's book The Big Secret, reptilians are tall, blood drinking, shapeshifting, reptilian humanoids from the Alpha Draconis star system, hiding in underground bases and in plain sight.
+Gerb
+Essentially, the reptilian theory talks of a shapeshifting reptilian race of aliens that is evil and slowly taking control of Earth by taking on human form and gaining political or social power to manipulate human entities. First introduced in 1999, in Icke's book [[The Big Secret]], reptilians are tall, blood drinking, shapeshifting, reptilian humanoids from the [[Alpha Draconis star system]], hiding in underground bases and in plain sight.
 
 00;25;46;11 - 00;26;21;04
-Unknown
-These reptiles have a conspiracy against humanity, whether that means to take over the world, subjugate humanity or whatever. I'm not quite sure, but numerous people, including the Rothschild bush and British royal family, are reptiles, according to Ike. There are up to six. The reptilian theory has become one of the world's most popular conspiracy theories, with many internet users trying to find videos of political leaders that have discrepancies of their eyes or lizard eyes, as well as a lot of public places leaning into the conspiracy.
+Gerb
+These reptiles have a conspiracy against humanity, whether that means to take over the world, subjugate humanity or whatever. I'm not quite sure, but numerous people, including the Rothschilds, Bush, and British royal family, are reptiles, according to Icke. There are up to six. The reptilian theory has become one of the world's most popular conspiracy theories, with many internet users trying to find videos of political leaders that have discrepancies of their eyes or lizard eyes, as well as a lot of public places leaning into the conspiracy.
 
 00;26;21;05 - 00;26;56;07
-Unknown
-For example, I live in Denver and the Denver International Airport, which has been shrouded in conspiracy, has really leaned into the whole reptilian thing with a lot of posters of reptiles and such. The Pentagon UFO videos finally were eaten. The Pentagon UFO videos refer to a series of three videos taken by the DoD, Air Force, or military regarding UFOs that were classified but released due to the efforts of Lou Elizondo and Chris Mellon and published via The New York Times with Leslie Keene and Ralph Blumenthal.
+Gerb
+For example, I live in Denver and the Denver International Airport, which has been shrouded in conspiracy, has really leaned into the whole reptilian thing with a lot of posters of reptiles and such. 
+
+### Pentagon UFO Videos
+The Pentagon UFO videos finally were eaten. The Pentagon UFO videos refer to a series of three videos taken by the [[Department Of Defence|DOD]], Air Force, or military regarding UFOs that were classified but released due to the efforts of [[Luis Elizondo|Lou Elizondo]] and [[Christopher Mellon|Chris Mellon]] and published via The New York Times with [[Leslie Keene]] and [[Ralph Blumenthal]].
 
 00;26;56;09 - 00;27;33;18
-Unknown
-These three videos show anomalous craft taken on clear footage labeled Go Fast, gimbal, and Fleer aka. You know, fucking drone. I'd like to focus on the gimbal video as shown here, which was taken in 2015 off the coast of Florida. A targeting pod on an F-18 captured this anomalous object, which the pilots said was able to move with no visible propulsion method and stand stationary in severe winds.
+Gerb
+These three videos show anomalous craft taken on clear footage labeled [[Go Fast]], [[gimbal]], and [[FLIR]]  "You know, fucking drone Bro. ""
+I'd like to focus on the gimbal video as shown here, which was taken in 2015 off the coast of Florida. A targeting pod on an F-18 captured this anomalous object, which the pilots said was able to move with no visible propulsion method and stand stationary in severe winds.
 
 00;27;33;21 - 00;28;11;02
-Unknown
-Now, unfortunately, there's a clip and part of this video that has not been declassified, and this is confirmed by the pilots who recorded this video, as well as Christopher Mellon. But within the rest of the video, this craft rendezvous with a series of other crafts and takes a V formation. That's extremely strange, and I would give anything to be able to see that footage, but clown debunkers like Mike West like to claim that the gimbal video is a bird or a jet moving away from the F-18, and thus is a lens artifact on the Fleer footage.
+Gerb
+Now, unfortunately, there's a clip and part of this video that has not been declassified, and this is confirmed by the pilots who recorded this video, as well as [[Christopher Mellon]]. But within the rest of the video, this craft rendezvous with a series of other crafts and takes a V formation. That's extremely strange, and I would give anything to be able to see that footage, but clown debunkers like Mike West like to claim that the gimbal video is a bird or a jet moving away from the F-18, and thus is a lens artifact on the FLIR footage.
 
 00;28;11;05 - 00;28;42;27
-Unknown
-I like to trust the eyes of the trained pilots who have recorded these videos, not some dude who sits in his basement and tries to debunk every single thing that ever exists on UFOs. So very curious. Video. I love this. This is a classic. All three are classics. Area 51. Now, I'm not going to spend a lot of time on area 51, because I know all of you have heard of it and I'd like to make a video itself on area 51, but we'll give a summary.
+Gerb
+I like to trust the eyes of the trained pilots who have recorded these videos, not some dude who sits in his basement and tries to debunk every single thing that ever exists on UFOs. So very curious video, I love this. This is a classic. All three are classics. 
+
+### Area 51
+[[Area 51]]. Now, I'm not going to spend a lot of time on area 51, because I know all of you have heard of it and I'd like to make a video itself on area 51, but we'll give a summary.
 
 00;28;43;00 - 00;29;13;14
-Unknown
-Area 51 is the common name for a highly classified U.S. Air Force base in the Nevada desert near Groom Lake and former nuclear test ranges for decades. Area 51 went unacknowledged and was associated with conspiracies of UFOs and experimental aircrafts. In fact, area 51 wasn't officially acknowledged until 2013, where the CIA publicly acknowledged the base through a freedom of Information Act request.
+Gerb
+[[Area 51]] is the common name for a highly classified U.S. Air Force base in the Nevada desert near Groom Lake and former nuclear test ranges. 
+For decades. [[Area 51]] went unacknowledged and was associated with conspiracies of UFOs and experimental aircrafts. In fact, area 51 wasn't officially acknowledged until 2013, where the CIA publicly acknowledged the base through a freedom of Information Act request.
 
 00;29;13;17 - 00;29;47;11
-Unknown
-Many believe that area 51 isn't just home to experimental aircraft tests like the U-2 tests and reverse engineering and foreign adversaries like the MiG jets, but is also housed for reverse engineering and test flights of UFOs. While I don't really want to cover that on this video, I will leave you with this. Pictured on screen is a project patch from area 51 supplied by Eric Tabor Eric Tabor is an official UFO whistleblower who submitted a memorandum for record to Arrow.
+Gerb
+Many believe that area 51 isn't just home to experimental aircraft tests like the U-2 tests and reverse engineering foreign adversaries like the MiG jets, but is also housed for reverse engineering and test flights of UFOs. While I don't really want to cover that on this video, I will leave you with this. Pictured on screen is a project patch from area 51 supplied by [[Eric Tabor]]. Eric Tabor is an official UFO whistleblower who submitted a memorandum for record to [[AARO]].
 
 00;29;47;14 - 00;30;12;03
-Unknown
-The All Domain Anomaly Resolution Office that this patch belonged to his great uncle, Sam Urquhart. I'm not sure how to pronounce his name. It's a little tough to spell, but his great uncle defaults to him that while working at area 51 as a contractor, he was privy to learn that the base housed an egg shaped UFO that was found intact in the Nevada desert.
+Gerb
+The All Domain Anomaly Resolution Office that this patch belonged to his great uncle, [[Sam Urquhart]]. I'm not sure how to pronounce his name. It's a little tough to spell, but his great uncle defaults to him that while working at area 51 as a contractor, he was privy to learn that the base housed an [[egg shaped UFO]] that was found intact in the Nevada desert.
 
 00;30;12;05 - 00;30;39;13
-Unknown
-It's worth noting that Sam was the head of security for an engineering group, the Radar Cross-section Training team, so it's not wild to think he was privy to some strange information. True or not, this is extremely interesting, as Tabor has submitted a legal document to arrow testifying that this is in fact true. So maybe area 51 has housed UFOs, but we'll save that for another time.
+Gerb
+It's worth noting that Sam was the head of security for an engineering group, the [[Radar Cross-Section Training Team]], so it's not wild to think he was privy to some strange information. True or not, this is extremely interesting, as Tabor has submitted a legal document to arrow testifying that this is in fact true. So maybe [[Area 51]] has housed UFOs, but we'll save that for another time.
 
 00;30;39;15 - 00;31;14;13
-Unknown
-The Nordic aliens are a supposed race of extraterrestrial humanoids who come from the palladium system, and resemble Nordic Scandinavians. The Nordics are often taller than regular humans 6 to 7ft tall, have blue eyes, fair skin, and long blond hair. Throughout the 1950s, many people alleged to have encounters with the Nordic aliens, claiming they were benevolent and magical, often caring about humans and the world's prosperity.
+Gerb
+
+### Nordic Aliens
+The [[Nordic Aliens]] are a supposed race of extraterrestrial humanoids who come from the [[Pleiades system]], and resemble Nordic Scandinavians. The Nordics are often taller than regular humans 6 to 7ft tall, have blue eyes, fair skin, and long blond hair. Throughout the 1950s, many people alleged to have encounters with the Nordic aliens, claiming they were benevolent and magical, often caring about humans and the world's prosperity.
 
 00;31;14;16 - 00;31;44;27
-Unknown
-The Nordics were able to communicate with humans via telepathy and possessed a cool, calming demeanor that proved to be youthful, affectionate, and kind. The Nordic aliens are part of a Galactic Federation and traverse the cosmos from their spherical to cigar shaped crafts. Interestingly enough, if you've heard of the abduction case of Travis Walton, a film was made about him called fire in the Sky.
+Gerb
+The Nordics were able to communicate with humans via telepathy and possessed a cool, calming demeanor that proved to be youthful, affectionate, and kind. The Nordic aliens are part of a [[Galactic Federation]] and traverse the cosmos from their spherical to cigar shaped crafts. Interestingly enough, if you've heard of the abduction case of [[Travis Walton]], a film was made about him called [[Fire in the Sky]].
 
 00;31;44;28 - 00;32;10;15
-Unknown
-I'd recommend checking it out, but Travis Walton has a very curious abduction story that has a lot of intriguing aspects to it. Let's just say that, and from his testimony when he's taken aboard a UFO craft, he encounters several types of beans, such as the common grays, including a Nordic like race of tall humanoids. Are the Nordic aliens real?
+Gerb
+I'd recommend checking it out, but [[Travis Walton]] has a very curious abduction story that has a lot of intriguing aspects to it. Let's just say that, and from his testimony when he's taken aboard a UFO craft, he encounters several types of beings, such as the common grays, including a Nordic like race of tall humanoids. Are the Nordic aliens real?
 
 00;32;10;17 - 00;32;31;15
-Unknown
+Gerb
 I don't know, I don't like to focus too much on abduction stories or extraterrestrial races. I just like to focus on the fact there is something in our sky that's of non-human intelligence, or multiple things in the sky of non-human intelligence, and start there. We got a lot to work through before we start deciphering what exactly these things are.
 
 00;32;31;15 - 00;33;08;05
-Unknown
-If they're even extraterrestrials. The Grays are the archetypal extraterrestrial and most famous depiction of extraterrestrials ever, often just referred to as grays. Grays are typically gray skinned, small humanoid beings between 3 and 5ft tall, completely hairless, with enlarged heads, sometimes a small slit like mouth, sometimes no mouth, sometimes just nostrils, sometimes no nostrils, and large black piercing eyes.
+Gerb
+### Grey Aliens
+If they're even extraterrestrials. The Greys are the archetypal extraterrestrial and most famous depiction of extraterrestrials ever, often just referred to as greys. Greys are typically grey skinned, small humanoid beings between 3 and 5ft tall, completely hairless, with enlarged heads, sometimes a small slit like mouth, sometimes no mouth, sometimes just nostrils, sometimes no nostrils, and large black piercing eyes.
 
 00;33;08;07 - 00;33;35;18
-Unknown
-The grays often lack muscular definition and have a visible skeletal structure. I want to stress with their head size. Their head is usually comically larger than their body. Now the gray can possibly be traced all the way back to 1917, where a cultist, Aleister Crowley, performed a black magic ritual and was able to contact a bean named lamb.
+Gerb
+The greys often lack muscular definition and have a visible skeletal structure. I want to stress with their head size. Their head is usually comically larger than their body. Now the grey can possibly be traced all the way back to 1917, where a cultist, [[Aleister Crowley]], performed a black magic ritual and was able to contact a being named lamb across space and dimensions.
 
 00;33;35;20 - 00;33;59;28
-Unknown
-Across space and dimensions. But I like to look at the fact the grays really became popular in the 1947 Roswell crash. These were the supposed beings that were found dead or dying by their crashed craft, a little bit northwest of Roswell, New Mexico. I'd like to make a long video on Roswell because it's fascinating. But also remember Betty and Barney Hill.
+Gerb
+But I like to look at the fact the grays really became popular in the [[1947 Roswell Crash]]. These were the supposed beings that were found dead or dying by their crashed craft, a little bit northwest of Roswell, New Mexico. I'd like to make a long video on Roswell because it's fascinating. But also remember [[1961 Betty and Barney Hill|Betty and Barney Hill]].
 
 00;34;00;02 - 00;34;32;18
-Unknown
-These small humanoid beings match the depiction of grays as well. In fact, grays are so commonly involved with alien abductions. Grays make up about 50% of claimed abductions or sightings in Australia, 73% in the U.S, 48% in continental Europe and 12% around the UK. There are many interesting theories about what exactly the gray is, some of them being the grays are basically biological drones utilized by other extraterrestrial civilizations.
+Gerb
+These small humanoid beings match the depiction of grays as well. In fact, greys are so commonly involved with alien abductions. Greys make up about 50% of claimed abductions or sightings in Australia, 73% in the U.S, 48% in continental Europe and 12% around the UK. There are many interesting theories about what exactly the grey is, some of them being the grays are basically biological drones utilized by other extraterrestrial civilizations.
 
 00;34;32;20 - 00;34;57;28
-Unknown
-Grays are often described as emotionless, kind of hive minded, and worker bees, so this could imply that they're just biological drones. Grays sometimes are often associated with future humans as well, claiming that as humans evolve, we rely less on our muscles, spend more time indoors, receive more receding hair across our bodies, get enlarged eyes from looking at screens.
+Gerb
+Greys are often described as emotionless, kind of hive minded, and worker bees, so this could imply that they're just biological drones. Greys sometimes are often associated with future humans as well, claiming that as humans evolve, we rely less on our muscles, spend more time indoors, receive more receding hair across our bodies, get enlarged eyes from looking at screens.
 
 00;34;58;00 - 00;35;24;03
-Unknown
-And that's interesting to think about, too. I'm not sure about that. I like it, but also that grays are just humanoid figures that evolved on a planet with somewhat similar conditions to Earth. Regardless of where they originate, the Grays are fascinating, and I somewhat believe that some sort of non-human intelligence on this planet resembles the classic gray. Little green men.
+Gerb
+And that's interesting to think about, too. I'm not sure about that. I like it, but also that greys are just humanoid figures that evolved on a planet with somewhat similar conditions to Earth. Regardless of where they originate, the Greys are fascinating, and I somewhat believe that some sort of non-human intelligence on this planet resembles the classic gray.
 
 00;35;24;03 - 00;35;49;16
-Unknown
-I'm not going to spend time on this one, especially since little green men are essentially green grays, and the term little green men is often used by politicians to kind of shrug off and make fun of any UAP or UFO sightings. You'll oftentimes see Pentagon conversations or official military talks when talking about UFOs. Say we found no evidence of little green men.
+Gerb
+### Little Green Men
+Little green men. I'm not going to spend time on this one, especially since little green men are essentially green greys, and the term little green men is often used by politicians to kind of shrug off and make fun of any UAP or UFO sightings. You'll oftentimes see Pentagon conversations or official military talks when talking about UFOs. Say we found no evidence of little green men.
 
 00;35;49;16 - 00;36;00;22
-Unknown
+Gerb
 So I just have no interest entertaining this entry. I understand I'm getting a little bit pressed about this, but yeah, I stop here.
 
 00;36;00;24 - 00;36;27;12
-Unknown
-Hoya Basu is essentially the most haunted forest in the world. It's nestled in Romania and has many un explicable and strange phenomena such as UFO sightings. I've never heard of this forest. I really don't have much to say about this entry. Besides, apparently in the 1960s there have been UFO sightings in the forest and images taken.
+Gerb
+### Hoia Baciu
+[[Hoia Baciu]] is essentially the most haunted forest in the world. It's nestled in Romania and has many un explicable and strange phenomena such as UFO sightings. I've never heard of this forest. I really don't have much to say about this entry. Besides, apparently in the 1960s there have been UFO sightings in the forest and images taken.
 
 00;36;27;14 - 00;37;03;12
-Unknown
-And lastly, we have the 1952 Washington DC UFO incident. This mass sighting of UFOs occurred over the weeks of July 19th to the 20th and July 26th. The 27th of 1952. At 11:40 p.m. on Saturday, July 1952, Edward Nugent, an air traffic controller at Washington National Airport, spotted seven objects on his radar. He knew immediately that this was a very strange situation as the crafts moved erratically compared to any normal aircraft nearby.
+Gerb
+### 1952 Washington DC UFO Incident
+And lastly, we have the [[1952 Washington DC UFO incident]]. This mass sighting of UFOs occurred over the weeks of July 19th to the 20th and July 26th. The 27th of 1952. 
+At 11:40 p.m. on Saturday, July 1952, [[Edward Nugent]], an air traffic controller at Washington National Airport, spotted seven objects on his radar. He knew immediately that this was a very strange situation as the crafts moved erratically compared to any normal aircraft nearby.
 
 00;37;03;13 - 00;37;35;15
-Unknown
+Gerb
 Two controllers at the national airport's radar equipped control tower looked outside and saw a hovering bright light in the sky, which departed at incredible speeds. At this point, other objects appeared in all sections of the radar scopes, and they moved over the white House. The US Capitol jets were scrambled from nearby Newcastle Air Force Base in Delaware to investigate the six fast moving bright lights over the nation's capital.
 
 00;37;35;17 - 00;38;02;29
-Unknown
+Gerb
 The jets found no such objects. They eventually ran out of fuel and had to return to their bases later on. On July 26th, 1952, the event occurred again, where a pilot and stewardess on a National Airlines flight into Washington, DC observed erratic moving lights above their aircraft. Within minutes, both radar centers at National Airport and Andrews Air Force Base tracked the objects.
 
 00;38;03;01 - 00;38;27;12
-Unknown
-The occurrence made front page headlines and caused a great deal of concern for president Harry Truman, who made personal calls to his Air Force aides to find out what the heck happened. As well as garnered much CIA interest in response to this event. The Robertson Panel was formed to quote, strip the unidentified flying objects of their special status.
+Gerb
+The occurrence made front page headlines and caused a great deal of concern for president Harry Truman, who made personal calls to his Air Force aides to find out what the heck happened. As well as garnered much CIA interest in response to this event. The [[Robertson Panel]] was formed to quote, strip the unidentified flying objects of their special status.
 
 00;38;27;12 - 00;38;53;02
-Unknown
+Gerb
 They have been given and the aura of mystery they have unfortunately acquired. End quote. So the 1952 UFOs over DC directly leads to the decades long stigma around UFOs. And this is very interesting. And I'll make another video about this. Well, my friends, that is layer one to the alien and UFO obscure oddities iceberg. I hope everybody enjoyed this first layer.
 
 00;38;53;02 - 00;39;15;19
-Unknown
+Gerb
 A ton of interesting entries. Looking down the list, we're going to have a lot more extremely interesting things to cover and I cannot wait. Remember if you liked the video, consider tossing out a subscription and the like doesn't cost you nothing, and it allows me to make more interesting videos like this. So stay tuned friends, I'm going to start part two immediately.
 
